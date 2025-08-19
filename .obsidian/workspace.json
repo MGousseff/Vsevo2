@@ -1,0 +1,313 @@
+{
+  "main": {
+    "id": "795f8349f44b92cc",
+    "type": "split",
+    "children": [
+      {
+        "id": "307485fa2c01504a",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "b4bdd85a4e331a07",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Vsevo/Vsevo/36_Trente_six mon poing dans la gueule.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "36_Trente_six mon poing dans la gueule"
+            }
+          },
+          {
+            "id": "03d656cc16cd91d5",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Vsevo/Vsevo/manuscript.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "manuscript"
+            }
+          },
+          {
+            "id": "91196d64e66af6f4",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Tools for writers/NotesDeContexte/AutresGousseffs.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "AutresGousseffs"
+            }
+          },
+          {
+            "id": "ac962fe7e1dcb891",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Vsevo/Vsevo/21_Vingt-et-un En fevrier la foule en octobre.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "21_Vingt-et-un En fevrier la foule en octobre"
+            }
+          },
+          {
+            "id": "18f8729fb2fb3585",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Vsevo/Vsevo/56_Inaccessible_a_l_ennemi.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "56_Inaccessible_a_l_ennemi"
+            }
+          },
+          {
+            "id": "c960a26bf5f081a0",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "58_.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "58_"
+            }
+          }
+        ],
+        "currentTab": 5
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "90a983bf1c4b27b6",
+    "type": "split",
+    "children": [
+      {
+        "id": "54a3f7e91d6c9c0c",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "be0952e7a073486b",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical",
+                "autoReveal": false
+              },
+              "icon": "lucide-folder-closed",
+              "title": "Files"
+            }
+          },
+          {
+            "id": "de7b2cf4aa9814a2",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              },
+              "icon": "lucide-search",
+              "title": "Search"
+            }
+          },
+          {
+            "id": "094c49f9e34d456b",
+            "type": "leaf",
+            "state": {
+              "type": "bookmarks",
+              "state": {},
+              "icon": "lucide-bookmark",
+              "title": "Bookmarks"
+            }
+          },
+          {
+            "id": "2ff3d0ec18071a94",
+            "type": "leaf",
+            "state": {
+              "type": "VIEW_TYPE_LONGFORM_EXPLORER",
+              "state": {},
+              "icon": "longform",
+              "title": "Longform"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 336.5
+  },
+  "right": {
+    "id": "0b6984b23c8c8e92",
+    "type": "split",
+    "children": [
+      {
+        "id": "2e77f5811cb52f49",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "1784cd6410edf61a",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "Vsevo/Vsevo/manuscript.md",
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-coming-in",
+              "title": "Backlinks for manuscript"
+            }
+          },
+          {
+            "id": "5ab3ce041351a883",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "file": "Vsevo/Vsevo/manuscript.md",
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-going-out",
+              "title": "Outgoing links from manuscript"
+            }
+          },
+          {
+            "id": "d2a6ab98154040a5",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true
+              },
+              "icon": "lucide-tags",
+              "title": "Tags"
+            }
+          },
+          {
+            "id": "3195022c85525b2a",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "Vsevo/Vsevo/manuscript.md"
+              },
+              "icon": "lucide-list",
+              "title": "Outline of manuscript"
+            }
+          },
+          {
+            "id": "164513b0f54ac5a3",
+            "type": "leaf",
+            "state": {
+              "type": "git-history-view",
+              "state": {},
+              "icon": "history",
+              "title": "History"
+            }
+          },
+          {
+            "id": "7a56271fbbdfab54",
+            "type": "leaf",
+            "state": {
+              "type": "all-properties",
+              "state": {
+                "sortOrder": "frequency",
+                "showSearch": false,
+                "searchQuery": ""
+              },
+              "icon": "lucide-archive",
+              "title": "All properties"
+            }
+          }
+        ],
+        "currentTab": 4
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "bases:Create new base": false,
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false,
+      "omnisearch:Omnisearch": false
+    }
+  },
+  "active": "c960a26bf5f081a0",
+  "lastOpenFiles": [
+    "06_Six qu est ce qui change.md",
+    "Vsevo/58_.md",
+    "57_Une_simple_déviation.md",
+    "Vsevo/Vsevo/57_Une_simple_déviation.md",
+    "Vsevo/Vsevo/56_ce_qui_nous_attend.md",
+    "Vsevo/Vsevo/55_Inaccessible_a_l_ennemi.md",
+    "Vsevo/Vsevo/54_Cinquante_quatre_Tu_As_Toujours_Ton_Luger_?.md",
+    "Vsevo/Vsevo/000_Titre.md",
+    "Vsevo/Vsevo/01_Un Trop Tard j ai tout lu.md",
+    "Vsevo/Vsevo/56_Inaccessible_a_l_ennemi.md",
+    "Vsevo/Vsevo/Vsevo/00_Zero Qu'est ce que t'en penses ?.md",
+    "Vsevo/Vsevo/Vsevo/55_Inaccessible_a_l_ennemi.md",
+    "Tools for writers/NotesDeContexte/Bretons et cosaques.md",
+    "Tools for writers/NotesDeContexte/evacuation_sebastopol.md",
+    "Vsevo/Vsevo/Vsevo/56_ce_qui_nous_attend.md",
+    "Vsevo/Vsevo/Vsevo/40_Quarante_Nom _de_nom.md",
+    "Vsevo/Vsevo/Vsevo/41_quarante_et_un_deux_F.md",
+    "Tools for writers/NotesDeContexte/Sebastopol_constatinople_croix_rouge.md",
+    "Vsevo/Vsevo/36_Trente_six mon poing dans la gueule.md",
+    "Vsevo/Vsevo/Vsevo/manuscript2025_08_14.md",
+    "Vsevo/Vsevo/Vsevo/53_Dieu_vomit_les_tièdes.md",
+    "Vsevo/Vsevo/Vsevo/52_La_mort_au_bout_du_fil.md",
+    "Vsevo/Vsevo/Vsevo/51_la masculinité_toxique_a-supprimer.md",
+    "Vsevo/Vsevo/Vsevo/51_Encore_la_Crimée.md",
+    "Vsevo/Vsevo/Vsevo/50_se debarrasser_de_soi_meme.md",
+    "Vsevo/Vsevo/Vsevo/49_Parfois_l_attaque_et_parfois_le_repli.md",
+    "Vsevo/Vsevo/Vsevo",
+    "Vsevo/Tools for writers/NotesSurLettresPerso",
+    "Vsevo/Tools for writers/NotesDeContexte",
+    "Vsevo/Tools for writers",
+    "Tools for writers/NotesSurLettresPerso/Untitled",
+    "Tools for writers/NotesSurLettresPerso",
+    "Vsevo/Vsevo/manuscript2025_03_23.odt",
+    "Vsevo/Vsevo/lu61930r0bst.tmp",
+    "Vsevo/Vsevo/manuscript2025_02_13.odt",
+    "Vsevo/Vsevo/lu178614dprr.tmp",
+    "Pasted image 20241209081858.png"
+  ]
+}

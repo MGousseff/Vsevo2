@@ -1,0 +1,15 @@
+#lev_dolgouchine
+
+e te félicite, ainsi que tout notre groupe, pour la fête du corps des marins et le 13e anniversaire de notre promotion. J'ai bien reçu ta lettre détaillée du 15 octobre et ton télégramme du 8 de ce mois. J'ai vu l'amiral et je me suis entretenu avec lui une deuxième fois, ou plutôt, une fois de plus au sujet de ton dossier. Pour ton information, je t'informe que le lieutenant-commandant Maximovitch a démissionné de son poste de président du groupe de la Marine (Union navale). Je ne sais pas qui l'amiral a nommé, mais, à mon avis, comme je l'ai déjà écrit à Usarov, notre groupe algérien devrait reprendre contact direct avec l'Union, en ayant son propre chef de garde et en communiquant au moins par l'intermédiaire du centre parisien de notre association.
+
+Cher Levouchka, je comprends très bien ta colère et ton indignation, je compatis de tout cœur et je te souhaite de trouver un moyen de venir à bout de ces personnes irresponsables et déséquilibrées, mais je te prie de ne pas oublier que tu as une grande responsabilité dans la préservation de notre groupe et que tu dois veiller à ses intérêts. D'après les documents que tu m'as envoyés, ton conflit avec Gorsky est avant tout de nature personnelle, et bien que tu bénéficies de la sympathie tout à fait naturelle de nos camarades, tu ne dois pas seulement éviter de transformer l'attaque de Gorsky en une provocation de la part d'un groupe isolé, mais aussi protéger ce dernier par tous les moyensde toute participation à un conflit quelconque qui, en fin de compte, divise nos rangs pour le plus grand bonheur de nos ennemis.
+
+Si tu conserves le droit de défendre ta réputation de manière digne, cela ne t'autorise en aucun cas à poser une sorte d'ultimatum à notre supérieur hiérarchique : soit vous le renvoyez, soit je pars, et en partant, je claquerai la porte et emmènerai les autres avec moi. Où iras-tu ? Sur quelle île d'émigration ? Ne sens-tu pas qu'en rompant nos derniers liens, tu disperses définitivement ce qui reste de notre faible ossature ? Le sentiment personnel l'emporte-t-il vraiment sur le bien commun ?
+
+Ton geste impatient montre que, sous le coup d'une offense personnelle, tu exiges une punition immédiate. Un tribunal juste et impartial peut être constitué sur place, et si tu as gagné le respect et la reconnaissance de tes mérites locaux par ton activité sociale, tu trouveras des gens pour juger ton cas.
+
+Leva, un homme qui s'engage dans le travail social ne se dérobe jamais devant une telle occasion, et quitter son poste n'est pas un acte de courage civique, encore moins une désertion de la partie qui lui a été confiée. Non, Leva, tu ne partiras pas. Les Gorski, les Maximovitch, les Gezekhus partiront, ils partiront d'eux-mêmes, et nous resserrerons nos rangs dans la persévérance, la discipline et l'unité. Nos aînés et notre patrie nous attendent encore, et nous n'abandonnerons pas notre poste.
+
+Je t'embrasse.
+
+V. Goussev

@@ -1,0 +1,21 @@
+Topola
+Mon cher Vsevolodouchka !
+
+J'ai à peine trouvé le temps, en ce dimanche, de t'écrire quelques lignes. J'ai enfin réussi à quitter Kragujevac, où j'avais un travail des plus ignobles – ramasser les crottes des autres et corriger leurs erreurs – et où je vivais littéralement dans la misère. Je mendiais stoïquement. La commission d'enquête a terminé son travail et j'ai été renvoyé à Topola.
+Maintenant, la section se compose de trois déonits (distances), dont l'une est la mienne ; à côté de moi se trouve mon cher collègue, l'ingénieur P. S. Polovtsev, et sur la suivante, le Serbe Iљa Nikolič. Ainsi, la section, y compris la sous-section, compte quatre ingénieurs. Comme les entrepreneurs n'ont pas terminé les travaux sur ces deonits, le conseil d'État (_serbe :_ državni) a décidé de les réaliser de manière économique. Je me retrouve donc dans la position d'un entrepreneur travaillant de manière économique.
+Le début des travaux a coïncidé avec la confirmation de nos droits à des suppléments pour le travail sur le terrain (_en serbe :_ « доплата за полевые работы » ?), et j'ai déjà reçu ces jours-ci l'argent qui m'était dû depuis octobre jusqu'en avril. Les malheurs ont immédiatement pris fin ! J'ai remboursé mes dettes et je n'ai plus à craindre, en cas de réduction, de devoir quitter Topola à pied pour aller je ne sais où. J'ai fermement décidé de mettre de côté mes suppléments (600 francs) jusqu'à la fin des travaux et d'envisager l'avenir avec optimisme.
+Semyon travaille actuellement chez moi comme magasinier (_en serbe :_ klavdshchik). On m'a envoyé un élève de troisième année du lycée comme commis et un Serbe respectable, un marchand de pain ruiné, mes neveux. Tu connais Semyon, mais je suis encore en train d'apprendre la langue avec ces deux-là. Je dois tout faire moi-même. Pendant le travail, je suis débordé (mais je ne me surmène pas). Je dois travailler sur le domaine d'Oilenac, qui appartient à notre cher seigneur (_en serbe :_ господина / хозяина). Tout le monde se déborde de travail, mais moi, je le fais dans les règles de l'art, en respectant les courbes et les pentes, sans déroger d'un centimètre, ce qui déplaît à mon chef, qui a l'habitude de travailler à l'œil et avec des croix.
+
+Aujourd'hui, nous avons souffert de la chaleur, la chaleur était terrible (climat kahstine), et maintenant il y a un orage. La terre tremble beaucoup chez nous. Des tuyaux ont éclaté, il y a des fissures partout dans les maisons et le plâtre tombe au sol. Les phénomènes étaient très perceptibles, et surtout, on avait l'impression que la pièce était simplement retournée. Les portes et les cadres claquaient, l'armoire glissait de sa place, on était projeté sur le lit, des objets tombaient de la table. Les arbres se balancent dans tous les sens, les coqs chantent, les poules et les chiens s'agitent. Et au final, on lit : « tremblement de terre de magnitude 7 (catastrophique), déplacement vertical du sol de 840 microns !? » (_en serbe :_ « tremblement de terre de magnitude 7 (catastrophique), déplacement vertical du sol de 840 microns »). Les tremblements de terre ne cessent pas. Mais tout le monde s'y est habitué et ne se précipite plus dans la rue.
+
+Ici, c'est une véritable épidémie d'adoption de la nationalité serbe. L'acquisition des droits liés à la fonction publique (_en serbe_ : državna služba) joue bien sûr un rôle important. Mais je pense que je ne deviendrai jamais un vrai Serbe, je parle mal, on voit tout de suite que je suis un « frère russe » (_en serbe_ : ruski brat). Je préfère rester un frère. Et puis, je vais sûrement devoir aider les Serbes de Russie, ce qui sera bien plus utile que de perdre mon identité pour des avantages matériels et de devenir un renégat. Soyons cohérents et constants.
+
+Écris-moi pour me donner de tes nouvelles, de ton travail et de Tatiana. Salue Sokolov et Tatiana de ma part.
+
+J'entends des chants serbes en bas.
+
+Écris-moi pour me donner des nouvelles des Verbitski.
+
+Je t'embrasse très fort.
+
+Ton _/signature/_

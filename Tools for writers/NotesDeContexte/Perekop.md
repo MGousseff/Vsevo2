@@ -1,0 +1,21 @@
+https://en.wikipedia.org/wiki/Siege_of_Perekop_(1920)
+
+https://en.topwar.ru/176935-bitva-za-krym-kak-krasnaja-armija-prorvalas-na-poluostrov.html
+
+https://www.wikiwand.com/fr/articles/Deux_Copains_de_r%C3%A9giment
+
+
+Role du régiment Markov : 
+https://en.wikipedia.org/wiki/1st_Officer_General_Markov_Regiment
+
+After the evacuation of Markov units from [Novorossiysk](https://en.wikipedia.org/wiki/Novorossiysk "Novorossiysk") to [Crimea](https://en.wikipedia.org/wiki/Crimea "Crimea"), on March 26, 1920, the division was restored. In Crimea, it became part of the formed 1st Army Corps. The division was replenished to almost 4,5 thousand people, and the 1st Regiment consisted of 1043 people (375 of which were officers) with 27 machine guns.[[2]](https://en.wikipedia.org/wiki/1st_Officer_General_Markov_Regiment#cite_note-:1-2)
+
+On May 11, 1920, after the renaming of the Armed Forces of the South of Russia by General [Peter Wrangel](https://en.wikipedia.org/wiki/Pyotr_Wrangel "Pyotr Wrangel") to the [Russian Army](https://en.wikipedia.org/wiki/Army_of_Wrangel "Army of Wrangel"), the Officer General Markov Division was renamed the General Markov Infantry Division (in accordance with this renaming, the regiments of the division were also called "infantry"). In the summer of 1920, reserve battalions of regiments and divisions were re-created as part of the division (the latter was intended for deployment in the 4th Regiment, the formation of which was begun in October). As part of the [1st Army Corps](https://en.wikipedia.org/wiki/1st_Army_Corps_\(Armed_Forces_of_South_Russia\) "1st Army Corps (Armed Forces of South Russia)"), the Markov Division participated in [battles in Northern Tavria](https://en.wikipedia.org/wiki/Northern_Taurida_Operation "Northern Taurida Operation") and the Zadniprovsky operation. In the last battle, the Markovites, not receiving the support of the Drozdovites, wavered and began to retreat. Colonel Tretyakov shot himself. Markovites with difficulty were able to break into the Crimea.
+
+The brigade from the 1st and 3rd Markov Infantry Regiments, led by Colonel Pyotr Sagaidachny, participated in the [last](https://en.wikipedia.org/wiki/Siege_of_Perekop_\(1920\) "Siege of Perekop (1920)") battles of the [Russian Army of General Wrangel](https://en.wikipedia.org/wiki/Army_of_Wrangel "Army of Wrangel") in Crimea in November 1920.
+
+The regiment guarded the Chongar Isthmus. The order to retreat was not delivered to them on time. All White Guard units then left, even the armored train. The colonel realized that it was necessary to make a quick decision, and, subjugating the 3rd regiment, hurriedly led the brigade south. Soon the Cossack rode up with a report that we should retreat – with a delay of 3 hours. But the [Markovites](https://en.wikipedia.org/wiki/Markovtsy "Markovtsy") almost caught up with their leaving column. In parallel to them was the numerous Red Cavalry. Ahead from the Kurman-Kemelchi station, firing off, white armored trains left and the Markovites turned out to be surrounded. Closing in the square they volleys and machine guns did not allow the red cavalry to cut into their ranks. The early twilight came and allowed them to retreat.
+
+In early November 1920, the division, along with other parts of the Russian army, was [evacuated](https://en.wikipedia.org/wiki/Evacuation_of_the_Crimea_\(1920\) "Evacuation of the Crimea (1920)") from Crimea. On November 27 in Gallipoli, the remainder of the division was reduced to the Markov Regiment and the Markov Artillery Division. For the ranks of the regiment in exile, a breastplate was installed in the form of a black [Maltese cross](https://en.wikipedia.org/wiki/Maltese_cross "Maltese cross") with a white narrow border, in the center – a black rectangle with diagonally intersecting lines, surrounded by a silver crown of thorns; at the ends of the cross dates: "12", "Feb", "19", "18".
+
+Après une série de revers Tretiakov est révoqué de son commandement par le général [Wrangel](https://fr.wikipedia.org/wiki/Piotr_Nikola%C3%AFevitch_Wrangel "Piotr Nikolaïevitch Wrangel"). À la réception du télégramme l’informant de sa révocation le général Tretiakov se suicide dans son état-major situé alors à Beriozovka. Il est enterré à [Sébastopol](https://fr.wikipedia.org/wiki/S%C3%A9bastopol "Sébastopol").

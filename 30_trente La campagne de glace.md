@@ -1,0 +1,21 @@
+Comme le langage n'est pas le réel l'Histoire n'est pas le passé. La mémoire de ceux qui racontent retient ce qu'elle peut, ce qu'elle veut et les documents historiques sont comme des clous sur une porte capitonnée, des éléments ponctuels où l'on peut espérer que le réel et le récit coïncident. Comme cet autre document notarié, daté d'octobre 1918 : Valéry autorise son fils à s'engager dans "l'armée russe", levée par les généraux Alexeev et Korniloff. Vsévo a 16 ans et il retrouve l'armée des Volontaires dans le Kouban, à l'est de la Crimée. 
+À Novorossisk, ce ne sont pas les allemands mais les Anglais qui sont présents. Ils apportent aux Volontaires un soutien logistique, et leur vendent notamment leurs surplus d'uniformes. Quand on les distribue, Vsévo retrouve Stoliaroff. Ils avaient rêvé de batailles rangées, de coups de canon tirés depuis de puissants destroyers, du prestige des épaulettes dorées de leurs pères, et on leur fournissait des uniformes des uniformes de toile kaki.
+- Regarde ça, dit Vsévo. À part la couleur, on dirait les bleus de chauffe des Gardes Rouges de l'usine Poutiloff. 
+- Parle moins fort, dit Stoliaroff, il faut que je t'explique. 
+Micha Stoliaroff est arrivé avec quelques mois d'avance sur Vsévo. Il les a vus arriver, lui, les volontaires en retraite de la première campagne du Kouban. 
+
+" Ils ont appelé ça la campagne de glace. Ils ne parlent pas beaucoup, mais quand ils racontent la bataille d'Ekaterinodar, tu peux sentir le froid jusque dans tes os. Jamais un mois de mars n'aura été aussi froid. On raconte que le général Markoff descendait en personne fouetter les soldats avec sa nagaïka cosaque. Pas pour les punir, mais pour les empêcher de se laisser mourir sur la glace. 
+À Ekaterinodar, ils ont dû traverser la rivière à gué. De l'autre côté, ils n'avaient rien d'autre que leurs baïonnettes pour attaquer les Rouges. Tu te rappelles les aspirants d'infanterie avec qui on a défendu le Palais d'Hiver ? Je ne sais même pas s'il en reste un seul de vivant. On raconte que Korniloff aurait dit " les pauvres petits,", quand ils fondaient dans la fournaise. On peut raconter ce qu'on veut, de tout façon, parce que Korniloff, il est mort. Il a pris un éclat d'obus. Ils l'ont enterré, et les rouges l'ont déterré quand ils ont repris du terrain, les chiens ne respectent rien. 
+La nuit, pour ne pas que les blessé meurent de froid, ils les glissaient sous les meules de foin. Mais les rouges ont réussi à incendier les meules.  Tu imagines, les hurlements des blessés, coincés sous les feux de paille ? Eh ben écouter un gaillard du régiment d'assaut Korniloff te raconter ça, dans son uniforme rouge et noir, mais avec les larmes aux yeux, ça fait..., ça fait..." 
+
+Pour Vsévo, la guerre civile vient de devenir réalité. Après un long silence Stoliaroff reprend. 
+
+" Je suis arrivé quand les Allemands ont occupé l'Ukraine. C'est triste à dire, mais c'est eux qui ont fait reculer les Rouges. C'était l'ordre au prix de la honte. Alors tu vois, ces uniformes kakis, là, qui nous disent que la guerre, c'est un boulot comme un autre, ça me rappelle ce que me disait l'officier qui nous a convoyés jusqu'ici, en parlant des Allemands qui chassaient les bolcheviques : le cœur a mal, mais la peau se réjouit."
+
+À Novorossisk, l'armée des volontaires devient véritablement une armée. Stoliaroff et Vsévo attendent de recevoir une affectation pour la campagne qui reprend. 
+- Dis-donc, demande l'officier qui s'en occupe, Gousseff, Vsévolod Valerievitch, t'es le fils du Valery Gousseff, qui construisait des gares ?
+- Oui, mais il est maintenant colonel du génie donc...
+- Oui, bon, n'empêche, tu partiras avec le train blindé, on va t'affecter au Dimitri Donskoï. Un nom pareil, ça va te porter bonheur et protection ! 
+Vsévo ne sait pas s'il parle du nom de son père ou de celui du train, qui fait référence à un grand-prince de Moscou du quatorzième siècle. De toute façon, plutôt qu'un nom, ce sont surtout les plaques de tôle vissées aux châssis des wagons qui vont le protéger. Il a un peu honte, parce qu'il sait que même s'il sera en première ligne, d'autres, derrière, arriveront à pied, à cheval, ou dans des trains ordinaires encore plus vulnérables. 
+Encore une fois : le cœur a mal, mais la peau se réjouit. 
+

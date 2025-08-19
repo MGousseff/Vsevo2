@@ -1,0 +1,1 @@
+After initial successes, in which the city of [Oryol](https://en.wikipedia.org/wiki/Oryol "Oryol") at only 360 kilometres (220 mi) from Moscow was taken, Denikin's overextended Army was decisively defeated in a series of battles in October and November 1919.

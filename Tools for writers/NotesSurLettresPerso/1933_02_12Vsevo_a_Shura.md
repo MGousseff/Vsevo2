@@ -1,0 +1,24 @@
+#Maison/Paull_Doumer
+#Lala
+#Caudron
+
+
+Mon cher Choura !
+
+Je m'étonne parfois de ta résignation lorsque tu ne reçois pas de lettres de ma part pendant des mois, mais toi non plus, tu ne me gâtes pas avec des mots, tu es toujours pressé et tu promets d'écrire en détail la prochaine fois. D'après tes brèves lettres, j'ai tout de même compris que tu te frayais obstinément un chemin dans ta carrière militaire, et je te félicite sincèrement pour ta persévérance.
+
+Je t'ai écrit au sujet d'un éventuel déménagement. C'est chose faite, nous vivons désormais à cent cinquante mètres plus près de Paris. À notre grand regret, notre rue a été rebaptisée et chaque fois que je prononce le nom de ce vénérable vieillard, je repense à cet acte malveillant.
+
+La maison dans laquelle nous vivons est tout aussi bizarre, tout en longueur. Son inconvénient est qu'elle est humide au rez-de-chaussée. L'ambiance est agréable. Outre le gaz et l'électricité, la maison dispose du chauffage central et de l'eau chaude pour les lavabos, [mais] il n'y a pas de baignoire. Il y a 7 pièces au total, nous sommes cinq à vivre ici : 3 sœurs, ma cousine et moi. Boris Nikolaïevitch vient une fois par mois de Belgique. Et pour les fêtes, Maria Pavlovna vient avec Lialia (c'était comme ça à Noël).
+
+Ton filleul a bien grandi. Il est maintenant très passionné par les chiffres, même si personne ne l'y encourage. Grâce à nos longues rues, il compte jusqu'à cent et écrit les chiffres avec ses doigts sur les vitres embuées.
+
+Avec l'argent que tu as prévu pour le cadeau de Noël (Tania et moi te sommes très reconnaissantes pour cette initiative), grand-père fera faire un portrait artistique de Lyalya, et nous l'enverrons à son parrain pour qu'il puisse admirer notre petit trésor.
+
+Je travaille toujours chez Caudron. Bien sûr, je suis très fatigué par le travail long et intense. Je crois que c'est temporaire et je rêve d'autres temps. De nombreux événements actuels nous amènent à penser que nous devrons bientôt agir, et je regarde l'avenir avec optimisme et confiance.
+
+Dans notre vie de compagnie, un petit événement qui a une certaine signification symbolique est le 10e anniversaire. Il a été célébré dans une ambiance très conviviale. Tout d'abord, lors d'un banquet général, les amiraux nous ont accueillis, puis tout récemment, le 20 janvier, nous nous sommes réunis en présence de l'amiral pour un repas très convivial
+
+en famille (14 personnes étaient présentes) et avons fait le bilan de nos activités. Les résultats se sont avérés significatifs. Il est bien sûr difficile de parler soi-même de ses actions, mais nous ne faisons que refléter les aspirations de tous, et chacun est donc en droit de considérer que le travail accompli reflète les traits de caractère de ses représentants. Au cours des années d'existence de notre organisation, nos efforts ont été principalement axés sur des activités extérieures, sur la création d'un environnement dans lequel nous pourrions trouver notre place et ne pas rester en suspens, comme des parias. Je veux parler de la création de l'Union navale qui, selon l'amiral Kedrov, a été créée presque exclusivement grâce à nos efforts et, en tout cas, nous en sommes les véritables fondateurs. Par nos actions et notre capacité à nous orienter dans le contexte complexe des relations internationales actuelles, nous avons réussi à gagner la confiance, le respect et la reconnaissance de nos pairs. Et tout cela principalement grâce à notre discipline, notre capacité à nous soumettre, à parler peu et à agir beaucoup. À mon avis, la dernière réunion a été l'une des plus importantes en termes d'intégrité, et tout le monde avait en tête une idée directrice commune. Bien sûr, beaucoup a été faitles années, l'expérience de la vie. Nous avons tous mûri de manière très harmonieuse, si bien que dix ans plus tard, le noyau de notre promotion est resté intact et que la force centripète qui, dans les moments décisifs, aidera chacun d'entre nous à trouver sa voie, est toujours vivante.
+
+Récemment, j'ai lu le rapport de Kazem-Bek, le leader des Mladorossi, sur la nouvelle monarchie et j'ai dû reconnaître en toute impartialité que les thèses et leur présentation avaient sans aucun doute une grande force et, surtout, une conviction qui fait tant défaut à nos vieux monarchistes. Je ne suis pas du tout surpris que les jeunes se tournent vers les Mladorosses, car malgré toutes leurs recherches, ils n'ont pas peur de poser ouvertement les questions qui se posent. Beaucoup de nos autorités militaires suivent de près le travail de cette organisation et il est regrettable qu'elles soient en conflit avec l'Union O. V.
