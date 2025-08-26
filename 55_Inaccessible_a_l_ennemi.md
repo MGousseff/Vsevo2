@@ -13,16 +13,20 @@ Il y a bien quelques lignes de chemin de fer qui permettent de passer d'ouest en
 
 L'impression de relative sécurité vient que la presqu'ile ne peut être attaquée que par l'isthme de Perekop, au nord-ouest. 
 - Et s'il traversent le Syvach, dit Vsévo. 
-- Quoi le syvatch ? dit Mikhaïl.
+- Quoi le Syvatch ? dit Mikhaïl.
 - Ben l'espèce de marais entre la Crimée et le continent ? 
-- Je sais ce que c'est que le syvatch, mais ils ne marchent pas sur l'eau, quand même, les bolcheviques ? 
+- Je sais ce que c'est que le Syvatch, mais ils ne marchent pas sur l'eau, quand même, les bolcheviques ? 
 - Ouais... Mais il n'y a que cinq ou six mètres de profondeur, si ça gèle ? 
-- Eh, ce n'est pas la baltique non plus. Le mois de Novembre n'est pas encore commencé...
+- Eh, ce n'est pas la Baltique non plus. Le mois de Novembre n'est pas encore commencé...
 Et de fait, lorsque les Rouges attaquent, ils lancent un assaut frontal vers Perekop. 
 Vague après vague, l'infanterie soviétique est fauchée par les mitrailleuses anglaises des troupes de Wrangel, qui a succédé à Dénikine à la tête des armées Blanches. 
+
+Après les assauts, on ne ressent plus rien. La fatigue est telle qu'une fois assurées les corvées et les tours de garde, on ne peut que dormir, plus rien n'existe que le corps, qu'il faut préserver, recharger avant la prochaine bataille. Aussi, quand un jeune sous-officier apport à Vsévo une lettre, cela lui fait l'effet d'un rêve. C'est son ami Andreï Papkoff. La lettre date de quelques mois, et c'est déjà un miracle qu'elle parvienne jusqu'à Vsévo, même avec autant de retard. Il lui écrit de Sébastopol, mais à l'heure où la lettre lui parvient, il doit déjà être à Odessa. À moins qu'il n'ait pas pu rejoindre sa troupe et soit revenu sur le paquebot Alexandra. La lettre semble parler d'une autre réalité, une Crimée sans Guerre, ou presque, où des gens possèdent des choses, en envoient à leur famille restée en Russie, un autre monde probablement déjà détruit par le fléau dont on n'est protégé que par quelques mètres d'eau saumâtre inaccessible aux Rouges. 
+
+
 Mais le six novembre, le vent tourne. Littéralement. 
 
-Le vent d'est laisse place à un vent d'Ouest si fort qu'il repousse l'eu peu profonde du Syvach jusqu'à rendre certains gués pratiquables. Sur les langues de terre qui émergent, un souffle glacé fait geler la boue. C'est Moïse à l'envers : la mer s'ouvre pour les assaillants. 
+Le vent d'est laisse place à un vent d'ouest si fort qu'il repousse l'eu peu profonde du Syvach jusqu'à rendre certains gués pratiquables. Sur les langues de terre qui émergent, un souffle glacé fait geler la boue. C'est Moïse à l'envers : la mer s'ouvre pour les assaillants. 
 Il faut abandonner Perekop, se retrancher sur Yushun. À Yushun, au moins, les trains blindés peuvent venir en renfort. Mais en renfort de quoi ? Il n'y a là ni tranchées, ni fortification d'où bombarder à distance. 
 Vsiévolode Valerievitch Gousseff mène son unité dans un corridor rocheux pour reprendre une fortification que la 51ème division soviétique a conquise dans la nuit. 
 En face, une unité makhnoviste fait feu, puis fait mine de battre en retraite. Quand on comprend que c'est l'habituelle tactique de repli et d'attaque, il est trop tard. Les mitrailleuses mobiles fauchent la première ligne de soldats. On recule. On se cache. Quand la nuit permet d'attaquer à nouveau, c'est à la baïonette que de finissent les combats, les yeux dans les yeux. 
