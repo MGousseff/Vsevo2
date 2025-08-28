@@ -1,18 +1,22 @@
-Je ne savais pas ce qui m'attendait quand j'ai commencé à écrire ce livre. J'avais si peu de matériel. Les entretiens avec l'oncle Lala, sa femme, sa fille, les quelques archives numérisées sur un CD-ROM. Puis j'ai trouvé ce cahier de copies carbones des lettres que Vsévo a envoyées plus tard, comme responsable des associations d'anciens ccombattants et d'anciens élèves officiers de marine. Puis les quelques pages du fichier "famille1.doc."
-Si peu, alors que j'aurais tellement voulu des lettres personnelles, me faire une image intime de Valéry, de Vsévo, de leur relation. 
-Méfie-toi des prières que tu adresses au néant, il lui arrive de les exaucer avec son numour bien particulier. 
-Une fois que j'avais écrit tout ce qui précède, ma cousine est passée me voir. Ele avait trouvé dans une malle, au grenier de la maison du Loi-et-Cher où notre grand-mère russe avait habité un paquet de lettres adressées à Vsévo. 
+Je ne savais pas ce qui m'attendait quand j'ai commencé à écrire ce livre. J'avais si peu de matériel. Au départ, je n'avais que les entretiens avec l'oncle Lala. 
 
-Pas plus que les lettres de Vsévo je n'arrivais à les déchiffrer. J'aurais dû sauter de joie, mais j'étais tétanisé. Des kilomètres de phrases indéchiffrables, dans lesquelles se trouvait peut-être le démenti implacable des personnalités que j'avais tenté de reconstruire. Et l'impossibilité de savoir. 
+- Et puis donc là, jusqu’à la fin quoi, dit Lala de sa voix fatiguée, jusqu’à la fin, évacué en novembre 1920 tu vois, et direction Bizerte. 
+- L’évacuation de 1920 c’est la grande évacuation de Sébastopol ? ai-je demandé. Il n'y a pas une histoire de sous-marin, non ? C'est pas en sous-marin qu'il est évacué ? 
+- Non, je crois pas, dit Lala, puis d'une voix plus assurée... Non, non, non, non. 
+
+Après, j'ai interrogé sa femme, sa fille et j'ai compulsé toutes archives numérisées sur un CD-ROM. Puis j'ai trouvé ce cahier de copies carbones des lettres que Vsévo a envoyées plus tard, quand il était responsable des associations d'anciens combattants et d'anciens élèves officiers de marine, presque impossibles à déchiffrer. Puis j'ai anotté les quelques pages du fameux fichier "famille1.doc" trouvé par hasard sur une clé USB. 
+
+Il fallait faire avec si peu. Combler les trous dans le récit en lisant des livres, des articles de revues historiques, des sites internets toujorus partisans, toujours contradictoires.  Mais ce que j'aurais tellement voulu c'étaient des lettres personnelles, me faire enfin une image intime de Valéry, de Vsévo, de leur relation. 
+
+Méfie-toi des prières que tu adresses au néant, il lui arrive de les exaucer avec son humour bien particulier. Une fois que j'avais écrit tout ce qui précède, ma cousine est passée me voir. Elle avait trouvé dans une malle, au grenier de la maison du Loir-et-Cher où notre grand-mère russe avait habité un paquet de lettres adressées à Vsévo. 
+
+J'aurais dû sauter de joie, mais j'étais tétanisé. Des kilomètres de phrases indéchiffrables, dans lesquelles se trouvait peut-être le démenti implacable des personnalités que j'avais tenté de reconstruire. Et l'impossibilité de savoir. 
 
 Un matin, un message dans ma boite mail me demandait de signer une pétition pour soutenir la demande d'asile d'un opposant à Vladimir Poutine, appelons le V.K. 
-V.K. avait lu certains articles que je publiais sur un site internet et pensait à juste titre que je serais désireux de l'aider. Après avoir signé la pétition, j'ai diffusé l'appel sur les réseaux sociaux. Des pouces, des cœurs, des emoji clap-clap mais aucune signature sur la pétition déposée auprès de l'assemblée nationale. J'ai aussi reçu les habituelles intimidations et les insultes des trolls poutinophiles persuadés que leur soutien à l'agression russe montre leur libération face à la propagande occidentale décadente des lobbys LGBTQ+, juifs et que sais-je encore. 
+V.K. avait lu certains articles que je publiais sur un site internet et pensait à juste titre que je serais désireux de l'aider. Après avoir signé la pétition, j'ai diffusé l'appel sur les réseaux sociaux. Des pouces, des cœurs, des emojis clap-clap mais aucune signature sur la pétition déposée auprès de l'Assemblée Nationale. J'ai aussi reçu les habituelles intimidations et les insultes des trolls poutinophiles persuadés que leur soutien à l'agression russe montrait leur liberté d'esprit face à la propagande occidentale décadente des lobbys LGBTQ+, ukrainiens, juifs et que sais-je encore. 
 
 V.K., après avoir signé un appel à la libération de Navalny s'est fait intimider puis tabasser par des sbires du régime et a dû s'installer dans un pays assez éloigné de Moscou pour ne pas malencontreusement tomber d'une fenêtre, mais assez proche pour que son passeport russe lui permettre de traverser la frontière. 
-Quand je lui ai demandé de quoi il vivait, il m'a dit qu'il faisait de la traduction. 
-Nous avons convenu d'un tarif horaire, et il a déchiffré les lettres.
-Je scannais, il transcrivait, il faisait un décompte des heures, je le payais, j'attendais d'avoir assez de fond pour le paquet suivant, nous recommencions, je traduisais grossièrement, puis il a fallu ranger ces centaines de lettres dans l'ordre chronologique, essayer de comprendre qui étaient les expéditeurs, deviner les réponses de Vsévo, que je ne lirais jamais. 
-Je vivais dans la peur de la lettre qui me ferait me dire : "Merde, tout ce que j'ai écrit est faux." 
+Quand je lui ai demandé de quoi il vivait, il m'a dit qu'il faisait de la traduction. Nous avons convenu d'un tarif horaire, et il a déchiffré les lettres. Je scannais, il transcrivait, il faisait un décompte des heures, je le payais, j'attendais d'avoir assez de fond pour le paquet suivant, nous recommencions, je traduisais grossièrement, puis je tentais de ranger ces centaines de lettres dans l'ordre chronologique, en déchifrant des tampons sur des timbres, ou en déduisant la date du contenu quand l'enveloppe était manquante. J'essayais de comprendre qui étaient les expéditeurs, de deviner les réponses de Vsévo que je ne lirais jamais. Je vivais dans la peur de la lettre qui me ferait me dire : "Merde, tout ce que j'ai écrit est faux." 
 Mais la lettre la plus ancienne datait du neuf janvier mille neuf cent vingt, envoyée par un certain Andreï Pakov. 
 
 *Cher Vsiévolode !
@@ -25,7 +29,7 @@ Mais la lettre la plus ancienne datait du neuf janvier mille neuf cent vingt, en
 
 *Votre Andreï Papkov*
 
-La suivante date du mois de mai de la même année. On y apprend que Valéry Gousseff et sa femme Tatiana ont déjà émigré et qu'ils vivent à Belgrade. Le fils de Tatiana, Aliocha, est reparti en Crimée pour suivre l'exemple de Vsévo et suivre des études dans le corps des cadets de marine. En mai  mille neuf cent vingt !
+La suivante date du mois de mai de la même année. On y apprend que Valéry Gousseff et sa femme Tatiana ont déjà émigré et qu'ils vivent à Belgrade. Le fils de Tatiana, Aliocha, est reparti en Crimée pour suivre l'exemple de Vsévo et suivre des études dans le corps des cadets de marine. En mai  mille neuf cent vingt, ils croyaient donc vraiment que la Crimée était inaccessible à l'ennemi !
 
 Andreï Papkov donne des nouvelles de sa famille, en Russie. 
 

@@ -10,8 +10,21 @@ Dans la nuit, la mer se lève, l'amarre se brise, et deux fois on pense avoir pe
 
 Le froid réveille Vsévo, la nuit est encore noire. Au loin, devant, on aperçoit des lumières. Constantinople. Avec l'aube arrive le détroit du Bosphore. Tout du long, les navires des alliés victorieux patrouillent comme des gendarmes dans une ville. Pas un ne salue les bâtiments Russes : ce ne sont plus des navires de la flotte impériale, juste des transports de réfugiés et Vsévo ressent une nausée qui ressemble à du mal de mer. 
 
-Une humiliation après l'autre, une fois à quai, il faut arborer le pavillon de quarantaine. Comme dans tous les ports, les marchands se pressent en espérant faire des affaires, mais la monnaie imprimée par Wrangel ne vaut rien. Les femmes décousent leurs ourlets, sacrifient les bijoux qu'elles avaient sauvé jusque là pour acheter ce qui se vend. Ce sont les Français qui assureront le ravitaillement. On finit par pouvoir débarquer, et l'on passe de la fuite à l'exode organisé. 
-Le corps des Volontaire sera dirigé vers Gallipoli, les cosaques du Don à Tchatalda, ceux du Kouban à Lemnos. Quant à la flotte... La France ne veut pas laisser tomber la marine impériale, mais elle ne veut pas non plus insulter l'avenir de ses relations diplomatiques avec l'Union Soviétique naissante, elle accueillera donc les navires russes, mais ni à Toulon ni à Brest, personne ne sait encore où. 
-Ainsi, après avoir combattu au sein du train blindé, avec les Volontaires comme avec les Cosaques, Vsévo s'apprête à partir vers Bizerte. La guerre civile n'a été qu'un accident, horrible, traumatisant, abject, certes, mais au final une simple déviation sur la trajectoire qu'ils avaient choisie : celle d'officier de marine. 
+Une humiliation après l'autre, une fois à quai, il faut arborer le pavillon de quarantaine. Comme dans tous les ports, les marchands se pressent en espérant faire des affaires, mais la monnaie imprimée par Wrangel ne vaut rien. Les femmes décousent leurs ourlets, sacrifient les bijoux qu'elles avaient sauvé jusque là pour acheter ce qui se vend. Ce sont les Français qui assureront le ravitaillement. 
+
+On finit par pouvoir débarquer et l'on passe de la fuite à l'exode organisé. Des bruits courent. Alors qu'ils s'éloignent du port, Vsévo et Mikhaïl partagent les informations qu'ils ont glané chacun de leur côté. 
+- On dit que le corps des Volontaire sera dirigé vers Gallipoli, dit Mikhaïl. 
+- Et les Cosaques, ils seront séparés ou bien ? demande Vsévo. 
+- Oui, de ce que j'ai entendu, les cosaques du Don iront à Tchatalda, fit Micha, et ceux du Kouban à Lemnos. 
+- Quant à la flotte, dit Vsévo, j'ai entendu dire que la France ne nous laissera pas tomber. Mais elle a la trouille que les soviétiques se maintiennent au pouvoir, alors personne là-bas ne veut de nos navires dans les ports de Toulon ni de Brest.
+- Et nous, qui on va suivre, demande Stoliaroff ? On a lutté avec le train blindé des Volontaires, le régiment Markoff, épaulé les Cosaques, et on n'a jamais fini l'académie navale...
+- Et alors ? répond Vsévo sans une hésitation. On est des cadets de la marine, personne ne peut nous enlever ça. 
+
+ La guerre civile, horrible, traumatisante, abjecte, ils ne veulent la voir que comme une simple déviation, un accident de trajectoire qu'on corrige pour revenir à l'azimut visé : devenir officier de marine. 
+Pour le moment, ils n'ont pas de cap à tenir, ils errent dans une ville où l'on peut croiser autant d'Anglais que de Russes, les Turcs préférant ces derniers, la solidarité entre vaincus d'aujourd'hui prime sur la rivalité d'hier. Les familles d'officiers qui ont pu emporter quelques objets de valeur les négocient un peu partout, dans des bureaux de change, auprès de marchands, ou simplement les troquent dans la rue. 
+Une voix qui se veut enjôleuse alpague Vsévo et Mikhaïl.
+- Alors mes mignons, on cherche du réconfort ?
+L'accent distingué de la jeune femme tranche avec ce qu'elle suggère. Les adolescents qui parlaient de se dépuceler au bordel après avoir gagné leurs galons se sont changés en combattants apathiques. Vsévo adresse un sourire triste et las et ne trouve rien à répondre. Tous ne montrent pas les mêmes pudeurs, et c'est de cette nécessité dégradante qu'est née la réputation sulfureuse dont on affuble encore les femmes slaves. C'est que personne ne sait comment seront traités les civils qui ont embarqué à Sébastopol, combien de temps ils devront tenir avant qu'on leur permettre de travailler, et où ? Les familles de militaires suivront sûrement dans les camps de Gallipoli ou de Lemnos, mais les autres ? On dit que certains pêcheurs peuvent vous emmener jusqu'en Grèce ou en Italie, certains rêvent de rejoindre les Russes qui sont déjà à Nice, mais faut-il croire ces passeurs improvisés quand on voit les frêles embarcations sur lesquelles ils naviguent ?
+
 
 
