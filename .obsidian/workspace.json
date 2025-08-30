@@ -55,12 +55,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "60_Cosaques_et_bretons.md",
+                "file": "61_L_ordre_secret.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "60_Cosaques_et_bretons"
+              "title": "61_L_ordre_secret"
             }
           }
         ],
@@ -242,15 +242,58 @@
       "omnisearch:Omnisearch": false
     }
   },
+  "floating": {
+    "id": "2d76986f40a4fd61",
+    "type": "floating",
+    "children": [
+      {
+        "id": "e86de82f3bebd86c",
+        "type": "window",
+        "children": [
+          {
+            "id": "dc7b041da76a37d2",
+            "type": "tabs",
+            "children": [
+              {
+                "id": "0a4b97b155aef000",
+                "type": "leaf",
+                "state": {
+                  "type": "markdown",
+                  "state": {
+                    "file": "Tools for writers/NotesDeContexte/arrivee Bizerte.md",
+                    "mode": "source",
+                    "source": false
+                  },
+                  "icon": "lucide-file",
+                  "title": "arrivee Bizerte"
+                }
+              }
+            ]
+          }
+        ],
+        "direction": "vertical",
+        "x": 1163,
+        "y": 152,
+        "width": 999,
+        "height": 1010,
+        "maximize": true,
+        "zoom": 0
+      }
+    ]
+  },
   "active": "fe14a8bc531a6161",
   "lastOpenFiles": [
-    "Tools for writers/NotesDeContexte/bar le duc.md",
+    "Tools for writers/NotesDeContexte/arrivee Bizerte.md",
+    "61_L_ordre_secret.md",
     "60_Cosaques_et_bretons.md",
-    "Tools for writers/NotesDeContexte/AutresGousseffs.md",
-    "Tools for writers/NotesDeContexte/CX+7-pp65-82-Nazarenko.pdf",
-    "59_J_ai_quelque_chose_pour_toi.md",
+    "Tools for writers/NotesDeContexte/evacuation_sebastopol.md",
+    "Tools for writers/NotesDeContexte/Sebastopol_constatinople_croix_rouge.md",
     "57_Une_simple_déviation.md",
     "58_Le visage_tourne_vers le sable.md",
+    "59_J_ai_quelque_chose_pour_toi.md",
+    "Tools for writers/NotesDeContexte/bar le duc.md",
+    "Tools for writers/NotesDeContexte/AutresGousseffs.md",
+    "Tools for writers/NotesDeContexte/CX+7-pp65-82-Nazarenko.pdf",
     "00_Zero Qu'est ce que t'en penses ?.md",
     "Untitled",
     "Tools for writers/NotesDeContexte/FallKerenskyCircumstantial-1918.pdf",
@@ -269,10 +312,6 @@
     "Vsevo/Vsevo/56_Inaccessible_a_l_ennemi.md",
     "Vsevo/Vsevo/Vsevo/00_Zero Qu'est ce que t'en penses ?.md",
     "Vsevo/Vsevo/Vsevo/55_Inaccessible_a_l_ennemi.md",
-    "Tools for writers/NotesDeContexte/Bretons et cosaques.md",
-    "Tools for writers/NotesDeContexte/evacuation_sebastopol.md",
-    "Vsevo/Vsevo/Vsevo/56_ce_qui_nous_attend.md",
-    "Vsevo/Vsevo/Vsevo/40_Quarante_Nom _de_nom.md",
     "Vsevo/Vsevo/Vsevo",
     "Vsevo/Tools for writers/NotesSurLettresPerso",
     "Vsevo/Tools for writers/NotesDeContexte",
