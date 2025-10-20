@@ -1,17 +1,17 @@
-"Ça fait deux mois qu'on est su l'eau. On voit cette eau du matin au soir, tantôt verte, tantôt bleue, tantôt propre, tantôt sale, l'air qu'on respire est chargé de sel, on vit sur du métal, les pieds sur le pont à attendre qu'on nous distribue des vivres, comme des animaux attendent leur fourrage. Maintenant qu'on est là, ils pourraient nous laisser descendre, bon sang."
+"Ça fait deux mois qu'on est sur l'eau. On voit cette eau du matin au soir, tantôt verte, tantôt bleue, tantôt propre, tantôt sale, l'air qu'on respire est chargé de sel, on vit sur du métal, les pieds sur le pont à attendre qu'on nous distribue des vivres, comme des animaux attendent leur fourrage. Maintenant qu'on est là, ils pourraient nous laisser descendre, bon sang."
 
 Vsévo et Mikhaïl sont accoudés au bastingage. 
 - Qui c'est, le type qui se plaint ?, demande Mikhaïl. 
 - Je sais pas, un civil, un professeur, un historien, je crois, répond Vsévo. 
-- Cela dit, il a raison, pourquoi est-ce qu'ils ne nous laissent pas descendez ? 
+- Cela dit, il a raison, pourquoi est-ce qu'ils ne nous laissent pas descendre ? 
 - C'est vrai, quoi, on a déjà subi une quarantaine à Constantinople et leurs médecins nous ont déclarés exténués mais en bonne santé. 
 - Exténués, évidemment, après vingt jours de charbonnage en mer, dit Micha. 
 - Mais ce n'est pas ça qui me surprend le plus, qu'ils ne nous laissent pas descendre, je veux dire. 
 - Ah bon ? C'est quoi ? demande Micha.
 - Le calme, répond Vsévo. Regarde, ajoute-t-il en montrant le lac de Bizerte de la main. Rappelle-toi, à Constantinople, que ce soit à quai ou dans des embarcations de toutes tailles, il y avait toujours quelqu'un en train de nous vendre quelque chose. 
-- T'as raison, des Turcs,d es Grecs, des marchands, des pêcheurs. Là, rien. 
+- T'as raison, des Turcs, des Grecs, des marchands, des pêcheurs. Là, rien. 
 - Personne ! reprend Vsévo. Bon, tu me diras, pour les marchands ou les simples quidams, vu où ils nous ont parqués, ça fait une trotte. 
-En effet, dès leur arrivée à Bizerte, une fois passé le brise-lames qui marque l'entrée du port, les navires des convois qui se sont succédés du 21 décembre 1920 au 2 janvier 1921 ont été dirigés vers le goulet jusqu'au lac de Bizerte, où on les a fait accoster sur la berge nord, à l'écart de la ville. 
+En effet, dès leur arrivée à Bizerte, une fois passé le brise-lames qui marque l'entrée du port, les navires des convois qui se sont succédés du 21 décembre 1920 au 2 janvier 1921 ont été dirigés par le goulet jusqu'au lac de Bizerte, où on les a fait accoster sur la berge nord, à l'écart de la ville. 
 - Oui, on les voit mal venir nous voir à la nage, rigole Micha. 
 - Tu imagines, dit Vsévo en riant, un commis du coin voyant depuis deux jours le contre-torpilleur Bezpakoïnik se dire : "Tiens, je vais aller nager près de ses turbines, voire si je peux me faire découper en rondelles !"
 - Attends, poursuit Micha, hilare, imagine nager jusqu'à la coque du navire atelier Kronstadt, et espérer que 10 mètre plus haut les gars t'entendent les appeler !

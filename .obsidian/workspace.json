@@ -62,9 +62,51 @@
               "icon": "lucide-file",
               "title": "61_L_ordre_secret"
             }
+          },
+          {
+            "id": "bcb8f2cfb944af58",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "ManuscritVsevo/Vsevo/61_L_ordre_secret.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "61_L_ordre_secret"
+            }
+          },
+          {
+            "id": "d50725e121ea178e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "ManuscritVsevo/Vsevo/manuscript2025_08_14.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "manuscript2025_08_14"
+            }
+          },
+          {
+            "id": "632db4b72031a074",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "ManuscritVsevo/Vsevo/62_Durs mais....md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "62_Durs mais..."
+            }
           }
         ],
-        "currentTab": 3
+        "currentTab": 6
       }
     ],
     "direction": "vertical"
@@ -242,83 +284,44 @@
       "omnisearch:Omnisearch": false
     }
   },
-  "floating": {
-    "id": "2d76986f40a4fd61",
-    "type": "floating",
-    "children": [
-      {
-        "id": "e86de82f3bebd86c",
-        "type": "window",
-        "children": [
-          {
-            "id": "dc7b041da76a37d2",
-            "type": "tabs",
-            "children": [
-              {
-                "id": "0a4b97b155aef000",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Tools for writers/NotesDeContexte/arrivee Bizerte.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "arrivee Bizerte"
-                }
-              }
-            ]
-          }
-        ],
-        "direction": "vertical",
-        "x": 1163,
-        "y": 152,
-        "width": 999,
-        "height": 1010,
-        "maximize": true,
-        "zoom": 0
-      }
-    ]
-  },
-  "active": "fe14a8bc531a6161",
+  "active": "632db4b72031a074",
   "lastOpenFiles": [
+    "ManuscritVsevo/Vsevo/61_L_ordre_secret.md",
+    "ManuscritVsevo/Vsevo/62_Durs mais....md",
+    "ManuscritVsevo/Vsevo/49_Parfois_l_attaque_et_parfois_le_repli.md",
+    "ManuscritVsevo/Vsevo/48_j_ai_peur_jusqu_au_dernier.md",
+    "ManuscritVsevo/Vsevo/47_dites_moi_les_gars_dites_le_moi.md",
+    "ManuscritVsevo/Vsevo/manuscript2025_08_14.odt",
+    "ManuscritVsevo/Vsevo/lu169176qrjv4.tmp",
+    "ManuscritVsevo/Vsevo/manuscript2025_08_14.md",
+    "ManuscritVsevo/Vsevo/43_On_a_tout_vu_à_Trostianets.md",
+    "ManuscritVsevo/Vsevo/26_Vingt_six Ce rythme obsedant.md",
+    "ManuscritVsevo/Vsevo/000_Titre.md",
+    "ManuscritVsevo/Vsevo/05_Cinq Les trinites.md",
+    "ManuscritVsevo/Vsevo/Index.md",
+    "ManuscritVsevo/Vsevo",
     "Tools for writers/NotesDeContexte/arrivee Bizerte.md",
-    "61_L_ordre_secret.md",
-    "60_Cosaques_et_bretons.md",
+    "ManuscritVsevo",
+    "ManuscritVsevo/Vsevo/60_Cosaques_et_bretons.md",
     "Tools for writers/NotesDeContexte/evacuation_sebastopol.md",
     "Tools for writers/NotesDeContexte/Sebastopol_constatinople_croix_rouge.md",
-    "57_Une_simple_déviation.md",
-    "58_Le visage_tourne_vers le sable.md",
-    "59_J_ai_quelque_chose_pour_toi.md",
+    "ManuscritVsevo/Vsevo/57_Une_simple_déviation.md",
+    "ManuscritVsevo/Vsevo/58_Le visage_tourne_vers le sable.md",
+    "ManuscritVsevo/Vsevo/59_J_ai_quelque_chose_pour_toi.md",
     "Tools for writers/NotesDeContexte/bar le duc.md",
     "Tools for writers/NotesDeContexte/AutresGousseffs.md",
     "Tools for writers/NotesDeContexte/CX+7-pp65-82-Nazarenko.pdf",
-    "00_Zero Qu'est ce que t'en penses ?.md",
-    "Untitled",
+    "ManuscritVsevo/Vsevo/00_Zero Qu'est ce que t'en penses ?.md",
     "Tools for writers/NotesDeContexte/FallKerenskyCircumstantial-1918.pdf",
-    "56_ce_qui_nous_attend.md",
-    "55_Inaccessible_a_l_ennemi.md",
-    "54_Cinquante_quatre_Tu_As_Toujours_Ton_Luger_?.md",
+    "ManuscritVsevo/Vsevo/56_ce_qui_nous_attend.md",
+    "ManuscritVsevo/Vsevo/55_Inaccessible_a_l_ennemi.md",
+    "ManuscritVsevo/Vsevo/54_Cinquante_quatre_Tu_As_Toujours_Ton_Luger_?.md",
     "Tools for writers/A faire.md",
-    "06_Six qu est ce qui change.md",
-    "Vsevo/58_.md",
-    "Vsevo/Vsevo/57_Une_simple_déviation.md",
-    "Vsevo/Vsevo/56_ce_qui_nous_attend.md",
-    "Vsevo/Vsevo/55_Inaccessible_a_l_ennemi.md",
-    "Vsevo/Vsevo/54_Cinquante_quatre_Tu_As_Toujours_Ton_Luger_?.md",
-    "Vsevo/Vsevo/000_Titre.md",
-    "Vsevo/Vsevo/01_Un Trop Tard j ai tout lu.md",
-    "Vsevo/Vsevo/56_Inaccessible_a_l_ennemi.md",
-    "Vsevo/Vsevo/Vsevo/00_Zero Qu'est ce que t'en penses ?.md",
-    "Vsevo/Vsevo/Vsevo/55_Inaccessible_a_l_ennemi.md",
+    "ManuscritVsevo/Vsevo/06_Six qu est ce qui change.md",
     "Vsevo/Vsevo/Vsevo",
     "Vsevo/Tools for writers/NotesSurLettresPerso",
     "Vsevo/Tools for writers/NotesDeContexte",
     "Vsevo/Tools for writers",
-    "Tools for writers/NotesSurLettresPerso/Untitled",
-    "Tools for writers/NotesSurLettresPerso",
-    "Vsevo/Vsevo/manuscript2025_03_23.odt",
     "Pasted image 20241209081858.png"
   ]
 }
