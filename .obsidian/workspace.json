@@ -104,9 +104,51 @@
               "icon": "lucide-file",
               "title": "62_Durs mais..."
             }
+          },
+          {
+            "id": "694a17cf6c513eff",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "ManuscritVsevo/Vsevo/61_L_ordre_secret.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "61_L_ordre_secret"
+            }
+          },
+          {
+            "id": "8d3724a6d4285ff9",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "ManuscritVsevo/Vsevo/62_Durs mais....md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "62_Durs mais..."
+            }
+          },
+          {
+            "id": "2ce8635089bf5ffe",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "ManuscritVsevo/Vsevo/64_yeux_deux_points_gris.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "64_yeux_deux_points_gris"
+            }
           }
         ],
-        "currentTab": 6
+        "currentTab": 9
       }
     ],
     "direction": "vertical"
@@ -284,10 +326,20 @@
       "omnisearch:Omnisearch": false
     }
   },
-  "active": "632db4b72031a074",
+  "active": "2ce8635089bf5ffe",
   "lastOpenFiles": [
-    "ManuscritVsevo/Vsevo/61_L_ordre_secret.md",
+    "ManuscritVsevo/Vsevo/manuscript2025_10_20.md",
+    "ManuscritVsevo/Vsevo/manuscript2025_11_22.odt",
+    "ManuscritVsevo/Vsevo/lu52703l7jyk.tmp",
+    "ManuscritVsevo/Vsevo/manuscript2025_11_22.md",
+    "ManuscritVsevo/Vsevo/64_yeux_deux_points_gris.md",
+    "ManuscritVsevo/Vsevo/63_Chaque_jour_la_même_chose.md",
+    "ManuscritVsevo/Vsevo/12_Douze Une emeute un journal interessant.md",
+    "ManuscritVsevo/Vsevo/57_Une_simple_déviation.md",
+    "ManuscritVsevo/Vsevo/manuscript2025_10_20.odt",
+    "ManuscritVsevo/Vsevo/lu68991ukhab.tmp",
     "ManuscritVsevo/Vsevo/62_Durs mais....md",
+    "ManuscritVsevo/Vsevo/61_L_ordre_secret.md",
     "ManuscritVsevo/Vsevo/49_Parfois_l_attaque_et_parfois_le_repli.md",
     "ManuscritVsevo/Vsevo/48_j_ai_peur_jusqu_au_dernier.md",
     "ManuscritVsevo/Vsevo/47_dites_moi_les_gars_dites_le_moi.md",
@@ -305,23 +357,12 @@
     "ManuscritVsevo/Vsevo/60_Cosaques_et_bretons.md",
     "Tools for writers/NotesDeContexte/evacuation_sebastopol.md",
     "Tools for writers/NotesDeContexte/Sebastopol_constatinople_croix_rouge.md",
-    "ManuscritVsevo/Vsevo/57_Une_simple_déviation.md",
     "ManuscritVsevo/Vsevo/58_Le visage_tourne_vers le sable.md",
     "ManuscritVsevo/Vsevo/59_J_ai_quelque_chose_pour_toi.md",
     "Tools for writers/NotesDeContexte/bar le duc.md",
     "Tools for writers/NotesDeContexte/AutresGousseffs.md",
     "Tools for writers/NotesDeContexte/CX+7-pp65-82-Nazarenko.pdf",
-    "ManuscritVsevo/Vsevo/00_Zero Qu'est ce que t'en penses ?.md",
     "Tools for writers/NotesDeContexte/FallKerenskyCircumstantial-1918.pdf",
-    "ManuscritVsevo/Vsevo/56_ce_qui_nous_attend.md",
-    "ManuscritVsevo/Vsevo/55_Inaccessible_a_l_ennemi.md",
-    "ManuscritVsevo/Vsevo/54_Cinquante_quatre_Tu_As_Toujours_Ton_Luger_?.md",
-    "Tools for writers/A faire.md",
-    "ManuscritVsevo/Vsevo/06_Six qu est ce qui change.md",
-    "Vsevo/Vsevo/Vsevo",
-    "Vsevo/Tools for writers/NotesSurLettresPerso",
-    "Vsevo/Tools for writers/NotesDeContexte",
-    "Vsevo/Tools for writers",
     "Pasted image 20241209081858.png"
   ]
 }

@@ -66,7 +66,10 @@ longform:
     - 57_Une_simple_déviation
     - 58_Le visage_tourne_vers le sable
     - 59_J_ai_quelque_chose_pour_toi
-    - 61_L_ordre_secret
     - 60_Cosaques_et_bretons
+    - 61_L_ordre_secret
+    - 62_Durs mais...
+    - 63_Chaque_jour_la_même_chose
+    - 64_yeux_deux_points_gris
   ignoredFiles: []
 ---

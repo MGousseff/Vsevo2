@@ -1,0 +1,2681 @@
+# 000_Titre
+
+**En février la foule**
+
+(titre provisoire)
+
+
+---
+
+# 00_Zero Qu'est ce que t'en penses ?
+
+Prologue
+
+Bon, et toi, du coup, qu'est-ce que t'en penses ?
+
+"Du coup,"" c'est un euphémisme pour dire : "toi qui es Russe." Je commence à comprendre les musulmans après Charlie Hebdo. Comme si le fait d'être Russe m'obligeait à me positionner vis-à-vis de l'invasion de l'Ukraine, ou, si je fais un effort pour ne pas céder à la paranoïa, comme si le fait d'être Russe me rendait par essence légitime ou compétent sur la question.
+
+Sauf que je ne suis pas vraiment Russe. Techniquement, mes grand-parents l'étaient, la moitié de mes gènes le sont, mais mon père, lui, est né ici, dans une famille de réfugiés, au milieu d'une guerre comme celle qui menace de se rejouer aujourd'hui.
+
+La première fois que je suis allé en Russie, j'avais 15 ans. On peut parler de traumatisme tellement le retour fut pénible. Depuis, chaque fois que j'ai réussi à mettre assez d'argent de côté, assez de temps, j'y suis retourné. Sept fois en trente ans. Ça ne fait pas de moi un expert, je n'ai jamais pris de notes en me disant que j'écrirai un roman plus tard.
+
+Simplement, alors qu'ici je suis incapable de vivre en ville, je me sens chez moi à Saint-Pétersbourg. La proximité de la mer Baltique, peut-être, ou les arbres au milieu des immeubles de l'époque stalinienne, décoiffés, fourchus, tout le contraire des platanes martyrisés des trottoirs parisiens.
+
+Et les gens. Les premières fois, évidemment, les amoureuses, et puis ce qui reste avec l'âge : les amis et les inconnus.
+
+Il faut avoir été là-bas, avoir vu un Eltsine catégorique mais oscillant annoncer : Dévalouatsia, nié boudiète, il n'y aura pas de dévaluation, puis se faire mettre à la porte de l'appartement qu'on vous prêtait - tu comprends, le rouble va perdre la moitié de sa valeur, je peux vendre aujourd'hui, il faut que tu sois parti demain - pour comprendre comment le totalitarisme est revenu en Russie, pour comprendre pourquoi lces gens que j'ai tant aimés ont accueilli Poutine en sauveur.
+
+- Mais c'est un ancien du KGB, ça ne vous fait pas un peu flipper ? 
+- Justement, tant mieux, il a du dossier sur tous les oligarques alors qu'Eltsine les a laissé sdépouiller le pays. Vous pouvez pas comprendre, vos pays sont des timbres postes, des confettis. En France, Chirac s'allonge à Paris les bras écarté, il a une main en Bretagne, une main en Alsace, les pieds en méditerranée, et la tête en Belgique. Faut pas croire ce que te disent les femmes pour te consoler : la taille, ça change tout ! La Russie, elle ne peut tenir que comme ça, une main de fer dans un gant d'acier.
+
+Ensuite, c'est comme regarder une catastrophe au ralenti.
+
+Bien-sûr, le terreau sur lequel la Bête immonde prospère était là, mais il est partout. Combien de fois, déjà, un Le Pen au second tour de la présidentielle française ? L'insatisfaction des gens, des petites gens, c'est-à-dire de ceux qui se sentent impuissants. Avec Elstine, les gens étaient devenus propriétaire et avaient vendu leur appartement pour se faire un pécule. La dévaluation a fait fondre cette comme la neige au printemps. Dès l'année suivante, je voyais des grand-pères  passer la serpillière dans les McDonald's de Moscou. Pour eux soudain, c'était mieux avant n'était pas qu'un slogan nostalgique du parti communiste moribond. Avant, quand un chef faisait régner l'ordre. 
+
+Bien-sûr, deux ans de camp pour les Pussy Riot, c'est quand même un peu exagéré, mais bon, voilà elles ont profané une église en y jouant du punk. Et oui, les membres du groupe Voïna vivent dans la clandestinité, mais ils ont dessiné un zizi sur les ponts qui se lèvent face au siège de la police… Est-ce qu'il n'y a plus rien de sacré ?
+
+Ah, le retour du sacré, les noces nauséabondes de l'Église et de l'État. Aujourd'hui, le patriarche Kyryl bénit les chars marqués du Z de l'invasion, ce Z infamant devenu moitié de Swastika, mais c'est fait avec politesse, dans le respect des traditions.
+
+Le patriarche Kyryl a succédé au patriarche Alexis II, mais Poutine est toujours là. Même s'il ne chevauche torse nu, comme il le faisait sur ses photos de propagande, même terrifié par le covid assis à des tables de dix mètres de long et même le visage bouffi et la main agrippée au coin d'un bureau pour qu'on ne la voie pas trembler, il instille encore la peur dont se nourrit la Bête.
+
+Et il y a quelques années, mes amis russes me disaient : "le contrat entre lui et nous c'est ça : on veut bien avoir peur de toi si les autres ont peur de nous." Pourtant les premiers symptômes de la gueule de bois étaient déjà là. " Il n'a pas fait ce qu'il aurait fallu, pour l'économie, on tient encore à cause du gaz, du pétrole, et c'est nous qui devrions dominer la nouvelle économie, avec les ingénieurs qu'on a. Mais à l'international, _za granitseï,_ il nous a rendu notre fierté. Oui, vous pouvez faire les vierges effarouchées, mais au moins, il a remis la Russie à sa place, au centre de l'échiquier. Tu t'étouffes, tu traites Bachar de dictateur ? Tu veux qu'on parle de la Libye ? Tu trouves qu'elle se porte bien depuis que vous avez buté Khadafi ? Il n'y a pas de Charlie Hebdo, chez nous." 
+
+Après un peu trop de vodka, et quelques copeaux de shit fumés sur une canette vide percée de trous, on met dans le même sac les victimes qui n'auraient pas dû proférer de blasphème et les bourreaux, formés par le djihadisme que Poutine combat en Syrie. On arrête la discussion parce qu'on ne se mettra pas d'accord. Et il y a un silence qui gonfle jusqu'aux murs qui nous entourent.
+
+Je n'ai pas les réponses. Je n'ai pas envie d'en débattre. Je n'ai pas de leçons à donner. Lors de mon premier voyage en Russie, on m'avait dit : "Apporte des parfums, des savons de grande marque, apporte des bas de qualité, ça fait toujours plaisir, là-bas."
+
+Et c'était vrai, en mille neuf cent quatre-vingt treize. Mais trente ans plus tard, mes amis russes partaient en vacances à Megève, et j'étais au chômage, j'écrivais dans une sous-pente de la deuxième couronne de Rennes. Je n'étais pas la meilleure publicité pour les démocraties libérales européennes.
+
+Il n'y en a qu'un qui ne me demande pas ce que je pense de l'Ukraine, il me dit, parce qu'il sait ce sur quoi je travaille en priorité depuis deux ans, et à bas bruit depuis plus de vingt ans :
+
+"Et toi, là, tu l'as dans le cul pour ton roman, non ? Parce que l'histoire de ton grand-père, la Révolution russe, la guerre civile, tout ça, ça se passe à la frontière entre la Russie et l'Ukraine, non ? Même ta grand-mère, qui se la jouait noblesse russe de Pétersbourg, elle venait pas de Kharkiv ? Si je résume, tu sors ton premier roman le jour des attentats de Charlie-Hebdo, tu sors ton deuxième roman quand les librairies sont fermées à cause du covid, et tu commences ton roman à la gloire de ton grand-père Russe quand Poutine envahit l'Ukraine ? Mec, en fait, peut-être que Dieu existe et qu'il en a qu'après toi personnellement… T'as jamais pensé à arrêter d'écrire ?"
+
+Si.
+
+J'y pense tous les jours. Mais il y a des histoires qui demandent à être écrites. 
+
+01_Un Trop Tard j ai tout lu
+
+---
+
+# 01_Un Trop Tard j ai tout lu
+
+Un
+
+J'aurais préféré que mon père soit encore là. Déjà, il se rappellerait dans quelle voiture nous roulions. Une Laguna Break ou un Grand Scenic ? Une Renault, en tout cas, puisque depuis trente ans, il n'achetait plus que ça. Je ne comprendrai que bien plus tard le pourquoi de son attachement à la marque. C'est lui qui conduisait, ça je m'en souviens. De toute façon, il laissait rarement ma mère conduire. Ça semble insignifiant, comme détail, mais c'est une époque.
+
+J'aimerais qu'il puisse donner sa version de l'histoire. Il dirait sans doute que c'était dégueulasse de le piéger comme ça, d'aborder le sujet alors qu'il était coincé pour cinq cents kilomètres entre sa femme et sa belle-sœur. Sauf que j'avais abordé le sujet cent fois avant et cent fois, il avait cru s'en tirer avec des "on verra plus tard" avec des "ce n'est pas le moment… " Bref, pour une raison que je ne comprenais pas, il refusait de me laisser voir les archives de mon grand-père. Le plus incompréhensible est qu'il ne s'agissait pas de son père, mais de celui de ma mère, le grand-père français,  catholique et résistant. 
+
+Quand ma mère m'avait parlé de ces documents que son frère, mon oncle aux légendaires moustaches, avait confié à mon père, elle m'avait dit qu'il y avait des détails sur la poche de Royan et sur la fin de la guerre, jusqu'à la mission qui fut confiée à mon grand-père de démobiliser les maquis de l'Est.
+
+Je croyais, sincèrement, naïvement, qu'elle' voulait que je fouille ces archives, que j'en tire un roman, un hommage à l'arbre dont j'étais la feuille. Bien-sûr, je n'avais publié que quelques nouvelles et mon premier roman, à l'époque, avait été refusé partout. Mais là, il y avait une fresque familiale qui ne demandait qu'à s'écrire toute seule. Mon grand-père, orphelin de père, et sa mère du dix-neuvième siècle, à la fois terriblement stricte et fantasque.  Une femme sévère, mais qui peint et qui se marie à ce peintre avec qui elle part sur les traces encore fraîches de Sérusier, Meyer de Haan, Maufra. Ils rejoignent leur ami Germain David-Nillet au Faouët. Mais on ne parlait pas de Gauguin. À l'époque, au Pouldu, on se rappelait de lui comme d'un alcoolique, un ancien banquier, un sale type qui avait fini dans les îles avec des petites filles dans son lit. Le Pouldu, c'est là qu'ils avaient fait construire une maison. On ne parlait pas encore de résidence secondaire, plutôt de villégiature. Les Allemands l'avaient réquisitionnée le temps de superviser la construction des blockhaus du mur de l'Atlantique dans lesquels nous avons vécu nos aventures de gosse. 
+
+Pendant que les Allemands occupaient cette maison, mon grand-père vivait à Paris, avec sa femme, ses quatre filles, son fils, et deux jeunes femmes juives qu'ils cachaient dans une dépendance de leur hôtel particulier du seizième arrondissement.
+
+Les jeunes filles craignaient mon grand-père plus que la gestapo. Il savait, lui, ce qu'elles risquaient quand elles jouaient bruyamment dans la cour entre leur dépendance et la grande maison de ville, et il piquait alors ces colères que j'ai pu connaître à coup de "nom de nom de nom d'une pipe en bois !"
+
+Je croyais que ma mère voulait que j'écrive ce livre, mais maintenant, nous étions tous là, dans la voiture, et elle se taitsait. Ma mère, agrégée de physique-chimie, qui a osé défier son milieu en soutenant Rocard, chrétien, certes, mais protestant, et de gauche, et ma tante, médecin, longtemps maire adjointe d'une grande ville des Hauts-de-Seine, se taisaient. 
+
+Sur le moment, je me suis dit, que le frère, le mari, le patriarcat, puisque le mot est à la mode, leur imposaient le silence. Mais peut-être, simplement, ont-elles pensé : "quelle insolence, si on dit non, c'est non."
+
+L'air s'est figé comme la graisse d'une sauce qui refroidit.
+
+"Si tu continues à m'emmerder avec ces papiers de Parrain - pour une raison familiale qui m'échappe encore, on appelait mon grand-père maternel Parrain - alors, je ne te raconterai jamais rien sur ton autre grand-père !"
+
+J'avais trente-cinq ans, il aurait eu le temps de raconter, s'il avait voulu. Le peu qu'il ait raconté, c'était sa légende personnelle, combien il était plus courageux que nous ne l'étions, des leçons édifiantes, mais pas de souvenirs, pas d'histoires, pas d'images. Alors me priver de notre histoire ? La menace tombe à plat. L'atmosphère, de glaciale, à étouffante.
+
+Je crois que c'est pour ça qu'il s'arrête à la station Total de Ploermel malgré le réservoir à trois-quarts plein. Ma mère et ma tante restent dans la voiture.
+
+Je prends mes affaires dans le coffre, et je pars tendre le pouce sur la bretelle d'accès à la quatre-voies. Lorsqu'ils sont passés devant moi, ma mère me dit, par la fenêtre ouverte : "Ne fais pas ta tête de mule." Une voiture est arrivée et mon père a dit quelque chose comme "ça lui servira de leçon" et il a démarré.
+
+Je suis retourné dans la maison d'où nous sommes partis. Une longère que mon père et ma mère ont fait rénover. J'y venais les dimanches soir, y dormir avec mon fils. Comme ça, je pouvais le déposer le lendemain à l'école, plutôt que le dimanche chez sa mère. Je le voyais plus, je la voyais moins. Me retrouver là sans lui m'a fait un pincement au cœur. Il ne m'a pas fallu un quart d'heure pour retrouver le dossier du grand-père. J'étais hystérique. Je feuilletais les pages ronéotypées ou tapées à la machine. Au bout d'une heure, l'enthousiasme était retombé.
+
+Il n'y avait rien. Aucune révélation. Quelques comptes-rendus dans lesquels mon grand-père résumait les parcours des uns et des autres, sérieusement caviardés, des pages manquaient, et tout ce qu'on pouvait comprendre c'est que les gaullistes avaient tenu mon grand-père pour un homme de confiance.
+
+J'étais là, conscient qu'après avoir fouillé sans autorisation, je ne pourrai plus dormir là avec mon fils. Bien-sûr, plus tard, on finirait par s'expliquer, mais plus tard, ce serait déjà trop tard. Mon fils se serait habitué à rentrer chez sa mère le dimanche soir. 
+
+Je fais parfois ce calcul sordide du nombre de dimanches soirs que j'ai perdus, et ça fait une année entière de câlins, de bisous, de "bonne nuit."
+
+Pour si peu. Le grand secret, c'était peut-être tout simplement qu'il n'y avait pas de grand secret. J'ai refermé le dossier, et avant de le ranger j'ai écrit sur un post-it : "trop tard, j'ai tout lu !"
+
+Et j'ai ajouté, sans trop savoir si c'est pour adoucir le propos ou accentuer la provocation : **☺**
+
+
+
+---
+
+# 02_Deux Durs mais pas cassant
+
+ Deux
+
+Vsevo suit son père dans les rues de la capitale.
+
+- Tu vois, la cathédrale Saint-Isaac ? Et la forteresse Pierre et Paul ? Et le Palais d'été ? C'est différent, hein ? Et pourtant, c'est le même architecte, Trezzini. Ensuite, c'est un autre italien qui a fait le Palais d'hiver.
+
+- C'est pour ça qu'on appelle Saint-Pétersbourg la Venise du Nord ?
+
+Son père rigole et explique que c'est surtout à cause des canaux. Vsevo ne veut pas que son père le prenne pour un enfant ignorant, alors il reprend.
+
+- Les canaux… Parce que pour construire sa ville, Pierre le Grand a fait assécher le marais, c'est ça ?
+
+Son père ne répond pas tout de suite, comme s'il hésitait à révéler à Vsevo un secret. Il finit par répondre avec une question.
+
+- Tu sais pourquoi Pierre a fait construire sa ville ici ? Sur ces terres marécageuses qu'il a fallu drainer ? L'été, les fièvres paludéennes ont coûté bien des…
+
+Il laisse la phrase en suspens. Nous sommes en mille neuf cent quinze, Vsevo a treize ans, il est assez grand pour savoir qu'on ne bâtit pas un empire sans perdre quelques vies. Les sacrifices nécessaires. Si son père s'arrête, c'est peut-être pour ne pas donner l'impression qu'il remet en question les choix de Pierre le Grand. Les événements de mille neuf cent cinq sont dans toutes les mémoires, et même si personne n'ose le dire, ni même le penser, l'idée qu'une révolution ratée, il y a dix ans, a fait vaciller l'Empire, cette idée flotte dans l'air du temps. Et comme le marais en été, l'air du temps est irrespirable. En mille neuf cent quinze, l'Okhrana, la police secrète du Tsar, a des oreilles dans toutes les rues.
+
+Vsevo répond à la question que son père n'a pas fini de poser.
+
+- Justement parce que c'était difficile de la bâtir ici. Pour rappeler à nos alliés européens que la Russie est peut-être un territoire sauvage, qui les a repoussés à chaque fois qu'ils ont oublié d'être des alliés, mais que le Tsar, lui, commande à la terre et à l'eau.
+
+Le père sourit. Il est satisfait que son fils ait le cœur au bon endroit. Mais il baisse la voix et le corrige.
+
+- Pierre n'a pas construit Piter sur un marais, mais sur un delta. Les façades en stuc coloré, les colonnes blanches, les coupoles et les flèches dorées, c'est pour détourner l'attention de la véritable vocation de sa ville. Saint-Pétersbourg, c'est un port. Une porte. Vers le golfe de Finlande, la Baltique, et de là, la Mer du Nord, l'Atlantique !
+
+Son élan de lyrisme se brise là et son visage se ferme. Ce que le père, Valéri, ne veut pas dire à son fils, Vsevo, c'est qu'en partant de la Baltique, il a fallu huit mois à la flotte impériale pour doubler Bonne Espérance et remonter jusqu'à Port Arthur. C'était quelques années seulement après la révolte des boxeurs. Valeri était encore lieutenant colonel, et il avait participé à la campagne qui montra aux chinois révoltés que l'Occident Chrétien n'était pas aussi divisé qu'ils l'espéraient. Au tournant du siècle, les alliés de la Russie était de vrais alliés, et pour défendre le quartier des légations face à ces paysans et leur impératrice fourbe, les Russes étaient venu aider les Allemands et surtout les Anglais. 
+
+Est-ce que vraiment on défendait les intérêts de la Russie ou ceux de ses cousins, Georges V et Guillaume II. Est-ce pour cela que Valéri était alors passé dans le civil ? Il avait travaillé dans les chemins de fers pendant un an ou deux, quand son fils était né. 
+
+
+Et puis les Anglais avaient ensuite fait comprendre au Japon que si l'envie lui prenait d'aller voir si les Russes leur céderaient un bout de Mandchourie, on pourrait regarder ailleurs. Valéry avait repris du service. En mille neuf cent quatre, les Japonais avaient attaqué Port-Arthur, sans prendre la peine d'une déclaration de guerre. Le deux janvier, moins d'un an après, Port Arthur capitulait. Quand il en parlait, et ça n'arrivait quasiment jamais, Valéry ne disait jamais "La Russie a capitulé," il disait "Port Arthur." La Russie jusque-là se voyait comme une puissance occidentale conquérant la Sibérie aux dépens des asiatiques et le Japon avait obtenu une reddition.
+
+Son père était resté quelques années en Mandchourie et sa mère avait dit à Vsevo : " Il se fait prolonger au lieu de revenir s'occuper de nous."
+
+Peut-être n'avait-elle pas tout à fait tort. À son retour, Valéry et sa femme Sophie divorcèrent. Vint un moment où il avait fallu décider quoi faire de Vsevo.
+
+Valéry voulait qu'il intègre le corps des Cadets. La guerre moderne avait besoin que la Flote arrive à temps sur les champs de bataille. Vsevo pourrait aussi participer à la reprise en main d'une Marine dont trop de matelots avaient penché du mauvais côté des troubles de mille neuf cent cinq. Et même certains officiers. Mais l'histoire oublierait ce traître de Lieutenant Schmidt, et ses soudards du croiseur Otchakov. Ces fous avaient fait flotter un drapeau rouge et sapé l'autorité du Tsar sur les côtes de la Crimée. La Crimée arrachée à la Peste, la Crimée arrachée aux Turcs, la Crimée arrachée aux Français, aux Britanniques…
+
+- Tu sais comment on rend l'acier plus dur, mon fils ?
+
+Vsevo est ravi de pouvoir montrer à son père ce qu'il sait.
+
+- L'acier trempé, papa ? On le chauffe, puis on le trempe dans l'eau froide et on recommence jusqu'à ce qu'il soit dur sans être cassant.
+
+- Bravo, fils mien ! Et c'est comme ça qu'il faut faire un bon officier. La chaleur de la Crimée, le contrôle de la mer Noire et notre juste place en Méditerranée. Mais aussi le Golfe de Finlande et, dès que les glaces le permettent, la Sibérie et vers le Nord. C'est ça qui fera de vous des officiers durs, mais pas cassants.
+
+Ils sont maintenant devant l'Académie Navale, loin des palais et des couleurs, et soudain, Vsevo se rappelle que son père va le laisser ici, une année entière, et il ressent pour la première fois autant de peur que de fierté.
+
+
+---
+
+# 03_Trois Mieux vaut le charbon que le sang
+
+Trois
+
+Vsevo et son père montent dans le tramway. Vsevo se dit qu'arriver sur un drojki, tiré par des chevaux, ou même dans une voiture automobile aurait donné une meilleure image. Il a peur que les autres cadets ne le jugent dès son arrivée, mais Valéry se préoccupe maintenant plus d'ingénierie que de prestige familial. Déjà sept ans que le tramway pétersbourgeois est électrifié, combien de capitales en ont un aussi beau ?
+
+- Regarde, mon fils, on arrive sur le pont de la bourse.
+
+Il se penche à l'oreille de Vsévo car la voiture répercute les cahots des rails.
+
+- Le câble, au-dessus de nous, c'est la caténaire qui transmet l'électricité au tram par le pantographe.
+
+- Mais le pont, je croyais qu'il devait se lever pour laisser passer les bateaux ?
+
+- C'est ça qui est formidable, il se lève quand même, c'est bien fichu, répond Valéry.
+
+Comme tous les enfants, Vsevo s'est extasié devant tout ce qui était grand, gros, ou mécanique, il a craint autant qu'il a admiré les premiers trains, mais il a grandi, et tout ça lui semble désormais normal. Pour son père, qui était adulte quand ces choses sont arrivées, l'émerveillement est  plus durable, et il retrouve une joie enfantine à l'idée de participer au progrès, à ces changements, les plus rapides qu'ait connu l'humanité.
+
+Vsévo réalise alors que son père en a fini avec la guerre. Comme si c'était sur lui, maintenant, que reposait l'honneur militaire de la famille. La mère de Vsévo aurait dû se réjouir que son mari quitte la carrière militaire, mais quand il lui avait annoncé, elle avait simplement répondu : "c'est un peu tard."
+
+Trop tard pour compenser les années d'absence. Vsévo, lui, avait demandé :
+
+- Mais papa, qui va défendre La Russie ?
+
+- Toi, bien-sûr !
+
+Puis, en riant, il avait continué :
+
+- Bien-sûr qu'il faut des soldats pour défendre un empire, mais que reste-t-il de Rome ? Les routes, les ponts, les aqueducs, les termes, les temples, et puis, plus tard, les basiliques.
+
+Il lui avait alors montré les plans d'une basilique sur laquelle il travaillait déjà. Il lui avait dit :
+
+- Regarde, on va faire une copie.
+
+Il avait badigeonné une grande feuille avec un produit chimique.
+
+- C'est du ferrocyanure ferrique, on appelle ça du bleu de Prusse.
+
+- Mais c'est pas bleu ?
+
+- Attends !
+
+Son père avait alors placé le calque de son plan sur la feuille et ils étaient sortis dehors. C'était l'été, ils étaient alors au verger de Staryi Krym, le domaine de Crimée que Valéry tenait de son père. Le soleil méridional avait alors fait bleuir la feuille partout, sauf là où les traits du calque la protégeait du soleil. Le bleuissement avait quelque chose de magique, et lorsque Valeri avait retiré le calque, les traits blancs sur fond bleu avaient quelque chose de propre, de moderne, qui contrastait avec le caractère sacré de la basilique dont ils traçaient le plan.
+
+- Il faudra qu'on nettoie la feuille tout-à-l'heure pour que la copie ne s'efface pas.
+
+Valéry, comme la Russie toute entière, faisait le grand écart entre la foi millénaire de la Sainte *Rus* et cette modernité qui allait rendre les hommes plus heureux, il en était sûr. On pourrait équiper la basilique de lustres électriques d'un côté de l'iconostase et conserver de l'autre côté les cierges, le mystère, les livres saints. Et il fallait expliquer les deux au peuple : le Saint Évangile et les miracles de la technique.
+
+Ils marchent côte-à-côte, et Vsevo aimerait prendre la main de son père. Il sait que ce n'est plus possible, pas aujourd'hui, alors qu'il fait un premier pas vers l'âge adulte. Mais il l'a si peu vu, ce père dont on lui donnait des nouvelles par lettre, d'un front à l'autre.
+
+Au moins, cette fois, il n'est pas sur le front de l'ouest, où, depuis un an, la guerre gronde. Et si Valéry se garde bien de critiquer devant son fils les engagements du tsar, Vsevo l'a entendu pester contre cette Europe qui se déchire alors que les ennemis ne manquent pas autour d'elle. Ne comprend-elle pas que l'ambition asiatique ne menace pas que la Russie ? Qu'il y a mieux à tirer de la terre que du sang ? Le charbon, le pétrole, et y poser des rails, et conquérir la Sibérie entière.
+
+Valéry voudrait prendre la main de son fils, maintenant qu'ils sont descendus du tramway et s'apprêtent à traverser la grande Nevka qui les sépare de l'Académie navale. Mais Vsévo a l'air tellement sérieux, lui qui n'était qu'un enfant l'été dernier, lui qui s'émerveillait devant le vignoble de Staryi Krym. Comme elles semblent loin ces pierres blanchies du pressoir, les rangées de vignes qui donnent aux collines un air bien peigné, avec, comme des épis, quelques vergers de plaqueminiers qui donneront à la fin de l'automne ces kakis oranges à la fois sucrés et astringents.
+
+La façade austère de l'Académie rappelle au père et au fils qu'il ne leur reste que quelques minutes avant la longue séparation qui durera jusqu'à l'été. Ils ne savent pas encore qu'il ne leur reste qu'un été avant les troubles, puis un été troublé, puis des troubles et plus jamais d'été ensemble.
+
+
+---
+
+# 04_Quatre La Marseillaise
+
+Quatre
+
+Déjà, ils montent l'escalier. Un huissier les accueille, figé, et Vsévo sent sa gorge se serrer lorsqu'il décline son identité : "Vsévolod Valierievitch Gousseff." L'huissier semble attendre un moment, au cas où un titre de noblesse suivrait, puis il dit à Valéry : "Vous m'attendrez là pour les formalités, je vais conduire votre fils à l'enrôlement."
+
+Valéry serre Vsévo dans ses bras, quelques secondes, qu'ils essaient de faire durer, ils s'embrassent, et déjà il faut se séparer. Vsévo se tient devant son père, incline la tête, et son père y trace un signe de croix, une bénédiction suivie d'un baiser, d'une dernière embrassade, et Vsévo est conduit dans un hall où l'attendent d'autres adolescents. Certains cachent leur appréhension avec un masque de gravité. D'autres affichent un air narquois : leur naissance leur offre une assurance qui manque encore à Vsévo.
+
+L'huissier retrouve Valéry, qui n'arrive pas encore à partir, bien que maintenant de lourdes portes en bois le séparent de son fils.
+
+- Ne vous inquiétez pas, dit l'huissier, ils ne le feront pas attendre très longtemps.
+
+Ils appellent d'abord les fils de haute noblesse, dans un ordre ésotérique reflétant l'importance de leurs titres, et la Russie n'est pas avare de princes ni de comtes. Mais si la famille Gousseff a perdu les siens, il y a plusieurs siècles déjà, c'est une famille ancienne, de noblesse héréditaire. L'huissier se pique de généalogie.
+
+- Les racines de votre famille s'ancrent dans le berceau de la Rus, à la convergence de la petite Russie, de la Russie blanche et de la grande Russie.
+
+Valéry sourit avec complaisance. On lui a déjà raconté toutes sortes d'histoires sur sa famille. Lui-même raconte cette anecdote d'un boyard Gousseff qui aurait perdu son titre nobiliaire à cause d'une loi qu'il avait lui-même rédigée. La vérité, c'est que, peu importent ces histoires, ou l'Histoire, peu importent ses faits d'armes dans la guerre des Boxers ou ses années perdues en Mandchourie. Valéry n'a pas de titre de noblesse et Vsévo devra faire ses preuves. Et c'est très bien comme ça. Dur, mais pas cassant.
+
+Évidemment, l'huissier a menti et Vsévo doit attendre des heures avant qu'on l'invite à entrer. Il est impressionné, mais il ne veut pas que les autres futurs cadets s'en rendent compte et le prennent pour un provincial mal dégrossi. Il voudrait rester immobile, avoir l'air digne d'un apprenti soldat, mais il sent qu'il s'agite sur son banc, fait passer son poids d'une fesse à l'autre, et il lui semble que les bruits qu'il fait résonnent sur les murs lisses de l'immense vestibule.
+
+Alors, comme à chaque fois que monte une émotion trop intense, il sent comme une déchirure, comme s'il se distanciait de ce cœur qui se met à battre trop vite, comme si se réfugier dans son cerveau lui permettait de prendre le contrôle sur son environnement extérieur. Pourquoi est-il est plus impressionné ici que dans la cathédrale Saint-Isaac, qui est plus grande et plus sonore encore ?
+
+Ses yeux s'accrochent aux colonnes, parcourent les plafonds, mesurent les portes et les fenêtres. Mentalement, il cherche à projeter les contours de la salle sur une feuille de bleu de Prusse, il ferme les yeux et aux traits blancs du plan de masse succèdent des plans de coupe. Il sourit, il ouvre les yeux, il a compris. Dans les églises, les plafonds sont des voûtes : où se terminent les murs, où commencent les dômes, où se termine la terre et où commence le ciel ? dur à dire. Chacun doit se sentir plus près de Dieu, protégé, accueilli.
+Mais ici, le plafond, aussi ouvragé soit-il, est une grande chape carrée qui empêche les colonne de grimper jusqu'au ciel.  Tout est fait pour qu'on se sente petit. 
+
+Vsévo a l'impression d'avoir compris les trucs d'un magicien, et il sourit. Mais son sourire disparaît quand on appelle enfin son nom, son nom complet, Vsiévolod Valéryévitch Gousseff : Vsiévolode Gousseff, fils de Valéry. Reprendre le flambeau. Nous entrerons dans la carrière quand nos aînés n'y seront plus. On apprenait aux fils de bonne famille le _couplet des enfants_ de _La Marseillaise._ C'était une occasion de parler français, et donc de montrer qu'on appartenait à la noblesse. Vsévo ne sait pas encore que c'est cette chanson, parmi d'autres, qui, dans moins de deux ans, mettra le feu aux poudres.
+
+
+---
+
+# 05_Cinq Les trinites
+
+Cinq
+
+Le père, le Fils, le Saint-Esprit. 
+La Russie, le Tsar, le Peuple. 
+Theos, Cosmos, Anthropos. 
+Le corps, l'âme et le mental…
+
+Les principes de l'Académie se déclinent en trinités successives qu'on peut emboîter à l'infini. Le corps, par exemple, c'est ensuite la force, le souffle, la vitesse. Et la force, c'est le haut du corps, la ceinture abdominale et les jambes.
+
+L'instructeur chargé de l'éducation physique, le sous-lieutenant Fedorov, insiste sur les jambes en hurlant : "La guerre, c'est le mouvement. À quoi ça sert d'être le soldat le plus fort du régiment si on n'arrive pas à temps sur le champ de bataille ?"
+
+Derrière Vsévo, une voix murmure : "On est des cadets de Marine, on va pas y aller à pied, nous, à la guerre."
+
+Le sous-lieutenant Fedorov a sûrement entendu, mais le garçon qui a prononcé cette phrase est Boris Alexandrovitch Kourakine*.
+
+(* Note de bas de page si la famille Kourakine existe et tient un rôle prépondérant dans la noblesse Russe, ce personnage est un personnage entièrement fictif.*)
+
+Est-ce que les enfants lisent encore les histoires de la Comtesse de Ségur ? Elles nous paraissaient à la fois vieillottes et cruelles, et il y avait un vieux général plein de bonté et un peu ridicule qui s'appelait Dourakine. Nous n'avions aucune idée de l'impertinence qu'il avait fallu à l'autrice, née Rostopchina, pour travestir Kourakine en Dourakine, qu'on pourrait traduire par Général Limbecile. L'ambassadeur qui avait tenu tête à Napoléon lui-même, c'était un Kourakine. La famille princière par excellence, la quintessence de la noblesse russe, le boyard si proche de Dieu qu'il n'a pas besoin de courtiser le Tsar. Quand on s’appelle Boris Alexandrovitch Kourakine on peut marmonner "les jambes, les jambes, on n'a pas besoin d'avoir des jambes musclées, on a besoin d'avoir le pied marin."
+
+Pourtant, rapidement, même Boris Kourakine se tait. Il n'a plus assez de souffle. Les jeunes muscles chauffent, tétanisent et la répétition des exercices grave les mouvements dans leur chair. Préparation à la lutte, course d'endurance, renforcement des bras, montée à la corde, qui vous crée des cals aux creux des mains un jour et les arrache le lendemain, apprentissage des marches militaires. Ces parades semblent vaines et inutiles, mais elles abritent, cachés, ritualisés, stylisés, presque, les gestes nécessaires aux manœuvres militaires. Le travail du corps, c'est une mécanique qui forge le caractère pour élever les âmes.
+
+Chaque matin, les âmes qu'on a élevées la veille s'inclinent devant une autre Trinité, la Seule, la Vraie, la Sainte. Là, et seulement là, pendant la prière qui ouvre la journée, Kourakine efface toute distance, tout sarcasme. La grande noblesse sait ce qu'elle doit à Dieu : tout.
+
+Bien-sûr, en dehors des offices, Kourakine aussi répète ce que les cadets plus âgés osent dire tout haut.
+
+- Si Dieu a confié la Russie au Tsar, ce n'est pas pour que celui-ci la livre au premier moine trouvé à la croisée des chemins.* (* *note de bas de page : jeu de mot sur le nom de Raspoutine, rasputie pouvant vouloir dire la croisée des chemins*)
+
+- Évidemment qu'il jeûne et fait le pénitent. C'est pas pour devenir un saint, c'est pour se racheter des péchés qu'il commet à Verkhotourié.
+
+- C'est pas de la pénitence, dit Kourakine, c'est parce qu'ils aiment ça, c'est tout. Là-bas, la flagellation, ça les excite !
+
+- Vous savez ce qu'il a dit à la grande-duchesse Militza, ce Raspoutine ? Que pour se rapprocher de Dieu, il faut beaucoup pêcher.
+
+Après avoir ri aussi grassement que les autres, c'est Kourakine qui remet le groupe dans le droit chemin :
+
+- Il n'y a jamais besoin de se rapprocher de Dieu. Il est avec la Russie. C'est tout. Et on pourrait presque le regretter, parce qu'on n'aura pas la chance de faire nos preuves avec cette guerre, elle sera gagnée avant que nous quittions le corps des cadets.
+
+- Bah, il y en aura d'autres. Il y en a toujours d'autres, des guerres.
+
+C'est Mikhaïl Stoliaroff qui a répondu à Kourakine. Stoliaroff, lui, n'est pas du genre à râler durant l'exercice. Il n'a pas les manières rondes et assurées de Kourakine. Durant l'office, il se tient droit, et n'en rajoute pas dans la ferveur. La noblesse qu'on a acquise récemment, par le travail, doit se démarquer du peuple encore trop proche du pope. La foi, oui, mais la superstition, non. On s'incline, mais on ne fait pas de courbettes.
+
+Vsévo n'est ni un Kourakine, ni un Stoliaroff. Personne ne le courtise, mais il ne ressent pas le besoin de se faire une place. Il sait quelle est sa place, quel est son chemin, celui qui prolonge celui de son père, et s'il ne se sent pas chez lui ici, c'est parce qu'il se rappelle la Russie blanche de Mohileff, ou parce que sa mère lui manque, ou parce qu'il sait que maintenant que son père s'est remarié, elle ne l'accompagnera pas en Crimée l'été prochain.
+
+Il serait d'ailleurs resté un cadet anonyme si, après le corps et l'âme, l'Académie n'avait pas aussi travaillé l'esprit. En cours de géométrie, un professeur demande de reproduire des figures à main levée. Pour aller plus vite, Vsévo prend deux crayons et dessine une figure de chaque main. Il sait vaguement que tout le monde ne peut pas en faire autant, mais pour lui, ça n'a rien d'extraordinaire. Pour ses camarades, en revanche…
+Ils le tannent, le testent, il faut qu'il écrive une phrase en partant du début et de la fin, une main de chaque bord de sa feuille. Les deux mains se rejoignent au milieu, les derniers mots se chevauchent sous les encouragements hilares et admiratifs des autres adolescents. Un demi-siècle plus tard, ses fils raconteront cela à leurs fils, qui se sentiront comme des fruits indignes de la branche qui les a portés.
+
+
+---
+
+# 06_Six qu est ce qui change
+
+Six
+
+Qu'est-ce qui change ? Qu'est-ce qui ne change pas ? Jusqu'à cette année 2022, j'ai vécu dans l'illusion que l'humanité change, qu'envahir son voisin, comme ça, parce qu'on l'a déjà fait avant, parce que c'est possible, parce que le pays va mal et qu'une bonne guerre, c'est ce qu'on donne au peuple quand le pain et les jeux ne suffisent plus, j'ai vécu dans l'illusion que cette idée était obsolète.
+
+C'est le lot des enfants qui naissent après les guerres, après les reconstructions, qui grandissent quand les gens commencent à s'enrichir, et qui, par une sorte de myopie générationnelle, finissent par croire que le progrès est un processus linéaire.
+
+Adolescents, nous partagions cela avec les correspondants russes qui nous accueillirent à Saint-Pétersbourg. Le mur était tombé, les années de flottement de Gorbatchev avaient failli se terminer dans le sang et la réaction conservatrice, mais Eltsine avait accédé au pouvoir, un peu par un coup de force, ce qui rassurait les Russes : leur nouveau maître avait du caractère. Tout allait changer. Mais rien n'avait changé.
+
+Et sûrement pas les rails du tramway qui nous amenait vers l'école numéro 4 sur l'île Vassilievsky. Je me souviens encore de ma tête projetée contre la vitre sur l'aiguillage du tram n° 27. Les rails s'enfonçaient dans le bitume que les roues métalliques du tram défonçaient un peu plus à chaque passage.
+
+Qu'est-ce qui change ? Aujourd'hui, quand on traverse la rue Nalitchnaia et qu'on arrive sur les quais qui bordent le fond du golfe de Finlande, on ne trouve plus les petits kiosques où on pouvait acheter tout et n'importe quoi. Bien-sûr on se précipitait sur le folklore, les châles, les matriochkas de bois verni qui, comme les époques, s'emboîtent les unes dans les autres. Mais on pouvait aussi acheter le casque complet d'un pilote de chasse avec le tuyau qui apporte l'oxygène quand on vole à haute altitude au-dessus de l'Europe convoitée et redoutée à la fois. Entre ces deux extrêmes, on trouvait toutes sortes d'articles dont il était difficile de savoir s'il s'agissait de surplus légal de l'armée, de matériel revendu en contrebande, ou de babioles destinées aux occidentaux russophiles et naïfs que nous étions tous. Nous avions donc acheté des montres à gousset à l'effigie de Lénine, ou, pour les plus malins, des montres-bracelet gravées d'un portrait de Yuri Gagarine.
+
+Et puis il y a eu les chinels. La traduction littérale est manteau. Mais un chinel, ça ne désignait pour nous que ces longs manteaux militaires en laine feutrée, avec les épaulettes. Celui que j'avais acheté était noir, avec deux rangées de boutons dorés frappés d'une ancre. Ils n'étaient que décoratifs car le manteau se fermait avec des agrafes, qui assuraient l'étanchéité nécessaire face au froid froid quasi polaire. Nous en avions tous acheté un, mais j'étais le seul à le porter au lycée, à mon retour. 
+
+J'étais sûr d'avoir acquis le manteau de l'amiral Koltchak, sinon du tsar lui-même ! Je fus un peu déçu quand Elena [prénom à changer] me révéla que si le \Phi doré qu'arboraient mes épaulettes signifiait bien "flotte", j'avais probablement acheté le manteau d'un cadet de la marine, pas plus prestigieux que l'uniforme d'un élève de polytechnique chez nous.
+
+C'était il y a trente ans, et je ne me souviens pas d'y avoir vu un signe. Je ne savais pas grand-chose de mes origines russes, de l'histoire du grand-père Vsévolode, de mes racines. En fait, c'est à Saint-Pétersbourg que j'ai pris conscience de ma double culture. Mes camarades de classe s'extasiaient devant les bols et les cuillers en bois verni, les motifs floraux sur fond noir leur paraissaient d'un exotisme délicieux, et si on avait des plumes de paon dans un vase, un samovar sur une commode, on frisait la pâmoison. Moi, ça me rappelait ma grand-mère, et, à la limite, plutôt que la Russie, le Loir-et-Cher où nous allions la voir.
+
+
+---
+
+# 07_Sept sto grammov
+
+Sept
+
+Bien-sûr, ma grand-mère du Loir et Cher, quand elle engueulait mon père, passait au russe, et je ne sais pas si ça a suffi à me former l'oreille, ou si j'ai entendu mon père parler russe plus souvent que je ne me le rappelle. Peut-être que c'est simplement la génétique, et que mon larynx ou ma glotte ou mes lèvres sont spécifiquement slaves. En tout cas j'avais un meilleur accent russe que mes camarades de classe. Et non, ce n'est pas que je travaillais plus. Je ne parlais pas mieux russe qu'eux, plutôt moins bien, simplement, même si je ne me souvenais pas toujours bien des paroles, je chantais la bonne mélodie.
+
+Pour les conversations, surtout lors du premier voyage de classe, en mille neuf cent quatre vingt treize, ce n'était pas vraiment une chance. Quand je leur disais que je ne parlais pas très bien et qu'il fallait aller doucement, ils prenaient ça pour de la fausse modestie et je souriais bêtement en attendant d'attraper un mot que je puisse comprendre. 
+
+Lena, par exemple, parlait peu, mais quand elle parlait, c'était à un débit de Kalachnikov. Rapidement, je me fis à l'idée de ne comprendre que des bribes, des fragments, et j'acceptai l'idée de faire douze fautes par phrase. Je fus invité à toutes les soirées parallèles organisées dans le dos des enseignants, celles où j'ai bu mes premiers verres de vodka. Pas dans la tradition russe, avec des shots glacés dans des verre à peine plus grands que des dés à coudre. Non, tiède dans des verres allongés dans lesquels on pouvait verser cent grammes de la vodka qu'avait apporté Sergueï. Cent grammes : sto grammov. 
+
+Je ne sais pas pourquoi je me faisais une gloire de bien tenir l'alcool. J'imagine que j'avais assimilé les valeurs virilistes débiles du vingtième siècle finissant.  À dix-sept ans, je n'avais jamais pris une cuite, mais j'avais pu observer mon père, mon oncle, mes cousins : un petit verre de vodka, un verre d'eau. Un petit verre de vodka, un peu de nourriture, un verre d'eau. Et toujours en portant un toast. C'était pour des fêtes religieuses, Noël, ou Pâques, que nous ne fêtions pas à la même date que les autres, les catholiques, qui se rangeaient bêtement à ce traître de calendrier grégorien, hérésie papiste en vigueur depuis seulement quatre cents ans et qui n'avait pour seul avantage que d'être en accord avec les astres, les saisons et la logique élémentaire, alors que les orthodoxes (étymologiquement, les tenants du droit chemin), en pinçaient pour le calendrier julien, qui présentait un décalage de treize jours avec le reste de l'humanité. Les Soviétiques, eux, avaient cédé et s'étaient alignés, comme nos verres, alignés devant nos jambes en tailleur.
+
+Lorsque Sergueï porta un toast à l'amitié franco-russe, il ajouta "za zdarovié," et tout le monde répéta. J'étais surpris. Dans ma famille, on disait, à l'ancienne mode "_na_ zdarovié."
+
+Une fois un toast lancé, chacun aurait à en porter un, jusqu'à ce que le cercle fut refermé. Ce ne fut jamais tout à fait le cas, car un ou deux Français s'éclipsèrent avant la fin du premier tour, pour aller vomir en toute discrétion et dormir, allongés dans la cuisine, loin des regards et du risque d'un deuxième tour.
+
+Je les croisais à chaque fois que j'allais évacuer mes petits verres de vodka et mes grands verres d'eau, et vers mon huit millième aller-retour, la première russe passa son tour. Lorsque Sergueï renonça à relancer un round de toast, Pierre- François-scout-d'Europe et moi étions les seuls Français encore debout. Pierre-François avait hérité d'une tradition paillarde, alcoolique, patriote mais aussi homophobe et un peu machiste.
+
+Notre quartier général était la maison de Lena, ligne 17. Un peu comme il y a des rues et des avenues qui quadrillent New-York, le quartier de l'île Vassilievsky était découpé par de longues perspectives que des lignes coupaient à angle droit. L'imagination des urbanistes s'était contentée de nommer une petite, une moyenne et une grande perspectives, et de numéroter les lignes. Je n'ai pas de souvenirs de comment nous sommes arrivés au bord de la Néva. Il est tentant d'évoquer l'alcool, mais un tiers de siècle a passé et c'est simplement ma mémoire qui n'a pas su retenir ces moments heureux de nos vies.
+
+Je me souviens en revanche du sentiment qui m'entourait, comme un halo surnaturel, une armure gazeuse et lumineuse, une chaleur qui me rendait insensible au froid de la nuit pétersbourgeoise. Un sentiment d'appartenance.
+
+Plus tard, quand je vivrai au Sénégal et que je verrai défiler des picards en dreadlocks évoquer leur sentiment d'appartenance, je me demanderai si moi aussi, j'avais cru ressentir quelque chose qui n'existait pas.
+
+Cette soirée, elle, avait bien existé. Les trésors que j'avais rapportés en attestaient : un calot et, plus incompréhensible, un maillot de corps rayé. Je vis en Bretagne. Je comprends assez bien qu'un marin ivre puisse laisser tomber un calot, mais à quel degré de débauche éthylique faut-il arriver pour perdre son maillot de corps à la fin de l'automne russe ?
+
+- À quel degré d'alcoolémie ? Le nôtre, cher Fransouz ! déclara Sergueï.
+
+Alors, nous avons enlevé nos manteaux, nos pulls, nos T-Shirts, nous avons regardé vers l'embouchure du fleuve, les bras écartés, et l'air était assez sec pour que le froid fut supportable.
+
+La Néva n'était pas gelée, mais nous l'étions quand nous en sommes sortis, frissonnants, fous, et fiers d'être fous.
+
+Plus tard, bien plus tard, quand mon père serait mort, mon oncle me parlerait de la fête des cadets de la Marine, et j'essaierais de toutes mes forces de croire que c'est à cette occasion-là que des jeunes marins russes avaient bu jusqu'à perdre leurs habits à mon bénéfice.
+
+Mais personne, depuis 1916, n'a plus fêté les cadets de la Marine Impériale.
+
+
+---
+
+# 08_Huit Derniere fete des cadets
+
+Huit
+
+On ne sent pas le temps qui passe. On sent le temps qui a passé. Entre le matin et le soir, entre deux marées, deux saisons ou entre deux anniversaires. Entre deux fêtes des cadets de la Marine.
+
+De mille neuf cent quinze, Vsevo n'a perçu que le faste et une trinité de plus : Le Tsar, la Marine et au milieu, l'Église.
+
+Comme dans la société Russe, l'église dédiée à Saint-Paul est au centre de l'Académie. 
+
+Depuis les fenêtres de l'internat, les plus jeunes, dont Vsevo fait partie, regardent la foule. Près de dix mille personnes participent à la procession. Tout devant, le prêtre de l'académie. Pendant l'année, il n'est pas le personnage le plus respecté des cadets. Aumônier qui se content de faire coïncider le message d'amour du Christ Sauveur et l'enseignement de la guerre, de la mort, qui est la raison d'être de l'école navale. Les cadets le voient surtout comme un surveillant de plus, un super pion auquel il faut se confesser avant la communion et qui peut quand-même vous faire renvoyer s'il vous attrape à boire de l'alcool derrière l'église. Mais aujourd'hui, il avance, en majesté, devant les diacres qui portent les bannières et les icônes. L'air est saturé d'encens et personne ne sait encore quelles malédictions les basses profondes du chœur maintiennent à distance. Derrière : les meilleurs éléments des promotions plus âgées ont été choisis pour représenter les élèves. Pas en de larges rangées militaires comme pour les parades du printemps, mais en rang, par deux. Une seule paire pour chaque grade et Vsévo se demande s'il les envie ou s'il les plaint.
+
+Il fait partie des premiers de sa promotion, mais se trouver comme ça, au centre de l'attention de ce qui est, au-delà d'une simple cérémonie académique, le premier événement mondain de l'hiver… C'est risquer le faux pas, la honte et le déshonneur public. En mille neuf cent quinze, on porte encore les uniformes de parade, comme si la guerre qui a commencé l'an dernier n'avait pas encore atteint Petersbourg, que l'on nomme déjà Petrograd depuis les troubles d'il y a dix ans.
+
+Lorsque la procession atteint l'église, il y a un flottement. Seuls les familles des officiers de l'Académie peuvent entrer. Dehors, comme si elle redoutait maintenant le froid, l'assemblée hésite. La messe ne sera pas une de ces liturgies que Stoliaroff trouve interminables, mais des bénédictions pour le Tsar, la Russie, Saint-Paul, la Marine, l'évêque, l'archevêque, et cela aussi peut durer des heures. Mais malgré le froid et l'ennui, on veut être vus !
+
+Le lendemain, Kourakine leur racontera le dîner de gala qui suit. Il arrive toujours à savoir ce qui s'est passé. 
+
+Chaque ministre présent, chaque officier a prononcé le toast que le protocole lui a attribué. On boit évidemment à la santé du tsar et de sa sainte famille. Et c'est enfin l'irruption du réel dans ce théâtre de rituels : le tsar est à Moguilev. En mille neuf cent-quinze, il a déjà remplacé l'archiduc son frère à la tête de l'état-major des armées. Beaucoup voient dans cette décision l'ombre de Grigori Raspoutine. Le tsar a passé l'année à visiter les hôpitaux de campagne, à se rendre sur les différents fronts et quelques jours avant la fête des cadets, il passe en revue les régiments de Cosaques, à côté de la stavka, le quartier général des armées. 
+
+- Il n'a pas pu venir, raconte Kourakine, parce qu'il a fait déplacer la Stavka à l'Ouest, à Moguilev, au plus proche des combats. 
+- C'est là que je suis né, dit Vsévo. 
+
+Il existe une archive filmée juste après la revue, où on voit le tsar rejoindre sa famille, au même endroit. Mais c'est une archive de 1916 et l'ombre d'une guerre interminable remonte alors vers la capitale comme un mascaret remonte l'estuaire. La cérémonie de mille neuf cent quinze est déjà loin. Dans quelques mois, le peuple qui avait clamé sa ferveur, qui avait réclamé la guerre, le peuple qui voulait l'anéantissement des puissances centrales, ce peuple réclamera la paix.
+
+Que s'est-il passé entre temps ? Vsevo a vu les plus âgés des cadets, les junkers, accéder à l'honneur suprême d'aller se battre pour la patrie, fiers, gonflés d'un orgueil qu'il leur a envié.
+
+- Les veinards, dit Stoliaroff. Ils vont faire autre chose que parader, aller à la messe et faire dorer les boutons de leurs vareuses.
+- À eux la gloire, à nous les exercices du sous-lieutenant Fedorov. 
+
+Et Kourakine fait des flexions en hurlant "Une, deux. Une, deux."
+
+Certains de ceux qui sont rentrés du front ne se privent pas de la réclamer, cette gloire qui leur revient, ils fanfaronnent, mais un chuchotement inquiétant se tient là, en suspension, comme de la neige poudreuse, un reproche sourd que les plus abîmés osent ne plus retenir tout à fait : il n'y a pas que des victoires et il n'y a toujours pas de vainqueurs.
+
+Mais pour Vsevo, entre ces deux fêtes de cadets de Marine, il y a cet été, qu'il a attendu une année entière, et, bien qu'il ne le sache pas, le dernier été qu'il passera avec son père. Valéry a repris le service, obsédé par les routes, les ponts, les rails, surtout les rails et l'avancée des troupes, par l'intendance, parce que la guerre ne se gagne pas que par les armes. 
+
+
+---
+
+# 09_Neuf Dernier ete avant la fin du monde
+
+Neuf
+
+Je ne connais presque rien de la Crimée. Et j'imagine que ce que je crois en connaître est faux, comme ce que les gens pensent savoir de la Russie.
+
+" Oh tu vas en Russie, tu n'as pas peur d'avoir froid ?"
+
+Vraiment ? En août, sous un climat continental ? J'étais à Moscou l'année où ce terrible orage a arraché trois créneaux du Kremlin. Il y a eu cinq morts, cette nuit-là, je crois. Les moscovites, qui avaient supporté des semaines de canicules, s'étaient mis à danser quand la pluie libératrice était enfin tombée. Le vent charriait dans les rues un pétrichor d'une intensité incroyable. Ils avaient dansé encore quand elle était devenue torrentielle, et il avait fallu que le vent arrache les tôles rivetées sur les cadres métalliques des portes de garage pour qu'ils se décident à rentrer les tables du bar. Nous y fêtions l'anniversaire d'un musicien que je ne connaissais que depuis le matin même. Une bourrasque arracha les panneaux translucides d'une enseigne lumineuse Volskwagen, dénudant les néons qui refusaient de s'éteindre. Mais comme il faisait chaud, nous chantions "Dojd' pashol Kharasho, la pluie tombe et  c'est très bien !" Alors non, les gens ne savent rien de la Russie, comme je ne sais rien de la Crimée, sinon que les Russes en parlent comme nous parlons de la Corse : des falaises calcaires qui se jettent dans une eau clémente, des collines recouvertes de vigne, une beauté méridionale. La récompense méritée des guerriers.
+
+Pour Vsévo, c'est plus que cela. C'est chez lui. C'est là qu'ils se retrouvent, avec son père, l'été. Et encore, pas tous les étés. La maison de Théodosie paraît étrangement moderne, quand on sait qu'il y un demi siècle on achetait avec elle les âmes des paysans qui l'entouraient.
+
+- Oh, mais le bartchouk a grandi !
+
+Ioufan, un paysan que Valéry a nommé intendant du domaine, appelle Vsévo Bartchouk, le fils du barine, le fils du maître. Vsévo ne sait pas si c'est une forme de respect de la tradition ou si c'est une gentille moquerie, mais il sait que si Ioufan l'appelait Vsévolode Valerievitch, il aurait l'impression d'avoir l'âge de son père.
+
+Valéry a confié Vsévo à Ioufan pour qu'il lui fasse faire le tour du domaine. Peut-être aussi qu'il n'est pas très à l'aise quand son fils et sa nouvelle femme sont ici en même temps. Pourtant Tatiana l'adore. Elle a un fils qui a presque son âge, d'un mariage précédent, et qui voit en Vsévo le grand-frère qu'il rêvait d'avoir.  Elle suit Valéry sur le front, comme infirmière, et elle le suis aussi pour cette permission un peu plus longue qui leur permet de se retrouver au domaine. 
+
+- Mais, papa, dit Vsévo, tu pourrais me montrer toi-même . Après tout, c'est toi qui décide ce qui se fait ici, non ? C'est toi qui connais le mieux le domaine ?
+- Je ne sais pas si je décide ou si je valide ce que me souffle Ioufan !, dit Valéry. Et puis l'idée n'est pas qu'il t'apprenne, en un été, à administrer tout le domaine, c'est que vous fassiez mieux connaissance. Un jour, toi, tu devras savoir bien l'écouter, et lui… lui, il faudra qu'il accepte que c'est toi qui décides, toi qui tranches, en dernier ressort.
+
+Au fil des jours, pour Vsévo, il devient évident qu'il n'ira jamais contre l'avis de Ioufan : il connaît chaque coteau, chaque champ, chaque abeille de chaque ruche.
+
+- Ioufan ?
+
+- Oui, Bartchouk ?
+
+- Pourquoi est-ce que tu travailles pour mon père ?
+
+- Comment ça ?
+
+- Je veux dire, maintenant, tout le monte est libre, tu pourrais travailler pour toi ?
+
+- Mais… pourquoi ?
+
+- Je ne sais pas, Ioufan, pour faire ce que tu veux ?
+
+- Mais ici, je fais ce que je veux : je gère tout un domaine ! Et puis…
+
+Ioufan a l'air embarrassé.
+
+- Tu veux dire que mon père te paye mieux que ce que tu gagnerais tout seul ? demande Vsévo.
+
+- Oui, il y a sûrement ça aussi, dit Ioufan en riant. Nous nous complétons bien, avec ton père. Mais surtout… je suis né ici, mon père aussi… Je ne sais pas, Bartchouk, je crois que c'est la volonté de Dieu. S'il avait voulu, Dieu m'aurait fait naître ailleurs.
+
+- Mais Dieu a quand même voulu que vous soyez libres, maintenant…
+
+Ioufan et Vsévo sont arrivés en haut de la colline à laquelle est accroché le domaine. Ioufan reprend son souffle et la beauté du paysage coupe celui de Vsévo. Les vignes alignées comme un velours côtelé alternent avec les vergers d'abricotiers. Des murets laissent deviner les limites des domaines.
+
+Sur une autre colline, plus haute, un garçon surveille des moutons. Vsévo se dit qu'il doit avoir son âge. Voyant ce qui retient son attention, Ioufan dit simplement :
+
+- Un tatar.
+
+- Je croyais qu'ils avaient rejoint les autres Turcs de l'empire ottoman ?
+
+- Bah, on essaye de les garder, maintenant. Ils savent y faire avec les moutons, mieux que nous. Et puis comme ça, les terres dont on ne s'occupe pas ne s'embroussaillent pas. Ceux-là viennent du sud, du littoral, même si ce ne sont pas des chrétiens, ce sont de vrais travailleurs. Et puis ce sont des gens simples, ils vivent aussi dans la crainte de Dieu, c'est juste qu'ils se trompent de Dieu.
+
+L'évocation de Dieu rappelle à Vsévo la question à laquelle Ioufan n'a pas répondu.
+
+- Alors, si c'est pour que tu restes sur ces terres, à travailler pour mon père, pourquoi a-t-il plu à Dieu que vous soyez libres ?
+
+- Peut-être, dit Ioufan, avec un sourire malicieux, qu'il plait mieux à Dieu d'être loué par des hommes libres ?
+
+- Kourakine, à l'académie, dit ce genre de choses, que plus on donnera de liberté au peuple, plus il sera reconnaissant et fidèle à notre Tsar.
+
+Ils redescendent vers la maison ou les attend Valéry.
+
+- Mais Stoliaroff, lui, continue Vsévo, pense que le peuple ne sait pas ce qui est bon pour lui. En tout cas pas encore. Il dit qu'il y a trop d'agitateurs juifs et étrangers, qui montent le peuple contre son berger.
+
+- Et toi, Bartchouk, tu en penses quoi ?
+
+- Je crois que Kourakine a raison. Mais Stoliaroff, lui, c'est une noblesse de grade, c'est le seul d'entre nous qui connaisse des ouvriers, dans les usines.
+
+Ioufan se renfrogna :
+
+- Nou-Da, bien-sûr, les usines. Les chemins de fer, les machines…
+
+Ils marchent, le silence s'alourdit. Le soleil allonge les ombres, ils remontent la route de terre qui mène au petit promontoire où se trouve la maison.
+
+Ioufan retrouve le sourire quand il salue Valéry, retrouve sa bonhommie pour donner rendez-vous au bartchouk :
+
+- À demain.
+
+
+---
+
+# 10_Dix Si pres de comprendre
+
+Dix
+
+Il y a toujours du monde dans la maison de Crimée, des Gousseffs qui viennent d'un peu partout. Un oncle qui travaille en Ukraine, un autre qui revient de Minsk, toute une collection de barbes plus ou moins courtes selon le corps d'armée où l'on sert, l'administration on l'on travaille, selon l'envie de faire européen ou de montrer qu'on lit Tolstoï.
+
+Valéry porte une barbe touffue, et des moustaches imposantes, fuselées. Eiffel porte la barbe, Tesla, la moustache, François Briau rien du tout. Mais l'ingénieur Vladimir Choukov porte la barbe, et tout le monde admire ses tours hyperboloïdes qu'on construit partout en Russie, alors pour le moment, il la garde.
+
+Vsévo commence à se poser la question du rasage. Sa barbe n'est qu'un duvet et elle révélerait sa jeunesse, sa fragilité. Personne ne veut avoir l'air fragile à 15 ans.
+
+Valéry débouche une bouteille, un vin jeune, issu des vendanges de l'an dernier, mais personne n'évoque celles de cette année. On parlerait de la main d'œuvre qui manque, on parlerait de la guerre, et certains évoqueraient le danger des puissances centrales, d'autres rappelleraient que ce sont aussi nos plus proches voisins, et on évoquerait la France, certains en parlant de Napoléon, d'autres au contraire, rappelleraient les "emprunts russes" qui ont renfloué les caisses du pays. On parlerait aussi de la cour, de l'influence néfaste de ce Raspoutine, dont il faudra bien qu'on s'occupe, on parlerait de la grogne des ouvriers et personne ne veut évoquer 1905. La révolution est déjà dans tous les esprits, sauf celui de Vsévo, qui interroge :
+
+- Quand je lui ai parlé d'ouvriers, dans les usines, Ioufan s'est refermé et n'a plus rien dit jusqu'à ce qu'on rentre.
+- C'est qu'il a perdu deux de ses neveux dans les mines du bassin du Don. Le train, les usines, tout ce qui touche au charbon, pour lui, ce sont des abominations, dit Valéry. Il dit que Dieu a mis de la force dans l'homme et dans les bêtes, et que ce feu qui vient des entrailles de la terre, ça doit être diabolique.
+- Eh, Dieu nous a aussi mis le charbon sous les pieds, il nous a faits maîtres de la nature, dit un oncle. D'ailleurs on m'a parlé d'un ingénieur qui serait descendu à la mine pour permettre le sauvetage des mineurs coincés en bas. 
+
+Un officier en retraite, qui rend visite depuis le domaine voisin lève la main lentement et tous se tournent vers lui.
+
+- La fin du servage, ça ne leur a pas forcément rendu service. Bien-sûr, les plus intelligents s'en sortent bien, en travaillant avec nous.
+- Forcément, vu ce qu'on les paye, dit l'oncle avec aigreur.
+ 
+Le vieil officier reprend avec l'air de celui qui n'a pas l'habitude d'être interrompu.
+
+- Ceux-là travaillent aussi ensemble sur le temps qui leur reste, ils se marient intelligemment, et il ne faudra pas très longtemps pour qu'ils s'enrichissent. Mais les autres, ceux qui ont voulu travailler tout seuls… Tu penses bien qu'une fois qu'ils ont produit pour eux-mêmes, ce qui reste, c'est pas énorme. Et pour négocier au marché, hein, tout seul, avec trois fois rien ? Alors si on a trois fils, ben il y en a deux qui vont partir à la mine, dans les manufactures, sur les chantiers ferroviaires.
+
+Il s'arrête et, chose inhabituelle, sa tirade est suivie d'un silence. Une cloche sonne. C'est samedi et certains iront assister aux vêpres. En rejoignant l'église de Théodosie, ils croiseront peut-être quelques tatars. Il fera peut-être encore jour quand ils sortiront. En remontant, certains verront le soleil s'incliner vers la mer, découper la silhouette de la forteresse génoise, et chacun pourra s'offrir l'illusion de l'éternité, oublier que les points fixes de l'histoire ne sont pas, comme les clous d'un fauteuil molletonné, des piliers de stabilité et de répartition équitable des choses, mais comme les points de convection sous les plaques tectoniques d'où jaillissent sans cesse des îles volcaniques,  les moteurs d'une histoire humaine à jamais sanglante et absurde, une histoire qui, tapie sous la chaleur douce de la fin de l'été, finira par éloigner Vsévo et son père à jamais. 
+
+
+---
+
+# 11_Onze Staline depouille un train
+
+Onze
+
+Vsévo est dans le train qui le mène à Petrograd. Depuis le début de la guerre, il faut dire Petrograd, Pétersbourg sonnait trop allemand. Nos voisins dont le sang irrigue la famille impériale, nos frères, donc, sont maintenant nos ennemis.
+
+Les temps se troublent.
+
+Ou bien sont-ils toujours troublés et seul le recul de l'histoire nous fait-il croire qu'il existe des périodes de calme ? Les collines de Crimée, surtout autour du domaine de Staryï Krym semblent lisses, nues, quand on les voit depuis la mer, au printemps, recouvertes d'un doux duvet verdoyant, mais la rocaille et la rugosité se révèlent quand on en parcourt les chemins. Et à la rugosité de l'espace répond la rugosité du temps. À Staryï Krym ou à Théodosie, Vsévo se sent chez lui comme si la famille avait toujours possédé ces terres, mais le mélange de clochers et de minarets rappelle que la piété sous les coupoles ne s'est pas toujours adressée au même dieu. Les gens, même, sous la surface qu'ils laissent paraître, ici et maintenant, ont des épaisseurs contradictoires. Son père, qui semblait si posé, si lisse, comme s'il avait embrassé sa carrière civile par lassitude de la guerre et de la violence, s'enflamme à nouveau pour les sujets militaires. 
+
+Oh, il ne parle plus jamais de la guerre des boxers, ni des grandes batailles contre le Japon, mais il raconte parfois des anecdotes isolées, des escarmouches d'avant qu'il ne soit colonel, et Vsévo finit par se dire que ce n'est pas la peur du combat, ni la peur de se faire tuer, ni le dégoût de tuer qui lui avaient fait quitter l'armée - après tout, les officiers n'y sont pas si souvent confrontés - mais son appétit pour la construction, les ponts, les routes, les chemins de fer. 
+
+Maintenant, le train qui traverse les plaines un peu tristes qui séparent Koursk de Belgorod rappelle à Vsévo l'anecdote que son père a raconté la veille. Comme c'était la dernière soirée avant son départ, il y avait un peu plus d'invités. Après le dîner, quelqu'un a pris une guitare - dès qu'ils ont suffisamment bu, les Russes ont le pouvoir de faire apparaître des instruments de musique depuis le vide apparent d'une pièce. Puis les doigts se sont fatigués, les chanteurs ont demandé à boire et l'heure des anecdotes a sonné, l'heure des histoires, des souvenirs.
+
+Ce qu'ils étaient allés faire dans le Caucase ? Valéri ne l'a pas précisé, peut-être un détour en revenant de Mandchourie ? Vsévo se souvient, il avait cinq ou six ans quand la scène est arrivée. 
+
+"Ça devait être il y a environ dix ans, vous allez voir pourquoi. Bref, on est dans le train. On quitte le compartiment, on remonte le couloir pour aller remplir une tasse au samovar de la juive du wagon.* Je lui sors un quart militaire en fer blanc et elle me dit qu'avec ça je vais me brûler les mains, qu'il vaudrait mieux que je lui loue une tasse. Je lui demande si elle croit que les soldats en campagnes boivent dans de la porcelaine de Chine, elle se marre, et me dit c'est pas de la porcelaine, ça, en me montrant un verre dans son porte-verre en métal. Elle remplit mon gobelet, mais elle avait raison et je me retrouve avec les mains brûlées. Allez, riez, riez, mais ce n'était pas à cause de mon quart en fer blanc ! C'est le train qui venait de freiner comme un cheval devant un brasier, avec le hennissement des roues bloquées glissant contre les rails, métal contre métal. Au final, on cogne quelque chose et le samovar se renverse. La pauvre, c'est elle qui s'est brûlée le plus.
+
+Et là, des bandits envahissent le train. Ils sont bien armés, les salauds, et ils se répartissent le boulot. Nous étions en famille, Sophia et Vsévo étaient restés dans le compartiment. Il  y en a un qui attrape un gamin, la mère refuse de lui lâcher la main alors il lui colle un pistolet sur la tempe. 
+
+- Dis, demande son frère, qu'est qu'il avait comme pistolet, ton gars ? Une pétoire de paysan ? 
+- Non, répond Valéri, un Nagant, qu'il a dû voler à l'un d'entre nous lors d'une attaque précédente. Il les éloigne du mari, qui n'est pas idiot et qui donc ne dit rien, mâchoires serrées. Ils portent des foulards autour du bas du visage, mais ils ont le style géorgien, avec les cheveux en pagaille. Ils veulent notre argent, évidemment, et les bijoux. Mais ils sont trop pressés pour ouvrir les bagages. Celui qui a l'air d'être le chef n'a pas vingt-cinq ans, mais c'est un malin, c'est lui qui organise, les autres l'écoutent, comme s'il avait plus de plomb dans le crâne. Et puis il tombe sur un diacre qui porte sa croix pectorale en évidence, accrochée à une belle chaîne en or qui brille, d'un geste lent, il prend le temps pour la lui retirer et il lui dit, toi et tes crapules, vous m'en avez assez fait baver à Tiflis. C'est comme ça qu'ils ont retrouvé qui c'était, un certain Djougachvili qu'ils avaient renvoyé du Séminaire. 
+
+" Pendant ce temps, je regarde dehors, il doit y en avoir une vingtaine. Alors, je me demande : mais comment ils vont repartir ? S'ils ont des chevaux, on pourra peut-être leur tirer dessus à ce moment-là ? Mais je ne vois pas de chevaux. Et là, d'un coup, en voilà un qui grimpe sur le toit du wagon, ceux de dehors se mettent à courir, ceux du dedans remontent le couloir, de voiture en voiture, avec le gamin et sa mère, le mari les suit, hésitant, mais l'autre serre la femme un peu plus fort et le mari abandonne la poursuite. On les suit à distance, et arrivés au bout : ils avaient décroché la locomotive ! Ils ont volé l'argent, et une locomotive ! Bon, visiblement, une locomotive, ça ne suffit pas pour faire la Révolution. Je ne sais plus quand c'était, sans doute en 1900, ou en 1901, ils l'ont arrêté depuis, ce Koba,** en 1902, il doit encore être en Sibérie, et on n'entendra probablement plus jamais parler de lui."
+
+Vsévo arrive à  Petrograd, où  il retrouve sa mère Sophie sur le quai de la gare. Il devait vivre avec elle à Tsarskoie Selo, le Versailles russe, à quelques kilomètres de Petrograd, pendant les quelques semaines qui le séparent de son retour à l'Académie, mais elle vit désormais dans un appartement à Petrograd. Il la trouve fatiguée, vieillie, puis se dit que c'est un peu injuste qu'elle soit là, toute seule, quand il y avait tant de joie à Staryï Krym. Il a laissé derrière lui l'insouciance et une mer azur, il retrouve les eaux sombres de la Néva et l'agitation, la nervosité d'une ville irritée. Dans les rues, quelques soldats revenus du front de l'Ouest ont la mine sombre, et les visages tâchés de graisse noire des ouvriers des usines Poutilov leur répondent en silence.
+
+Dans l'appartement de Sophie, seule l'odeur des bougies qu'on souffle devant les icônes apporte à Vsévo un sentiment de familiarité.
+Un fois seul, dans son lit, il sanglote. Il ne sait pas pourquoi. Il ne sait pas que ce flou, ce vague à l'âme est son dernier chagrin d'enfant.
+
+* Un samovar permettait d'avoir de l'eau chaude pendant tout le trajet, et un stéréotype ferroviaire tenace voulait que les femmes responsables des wagons soit de confession israélite.
+
+** Koba était un héros populaire Géorgien et également un des premiers pseudonymes de Staline.
+
+---
+
+# 12_Douze Une emeute un journal interessant
+
+Douze
+
+_"Comme la majorité des jeunes, j'ai d'abord été emporté par le nouveau courant politique. Mais il a commencé à montrer petit à petit ses sales petits côtés"._
+
+Et soudain, en une année, on vieillit de cent ans. À la rentrée, Vsévo, comme tous les élèves de sa classe, ne rêve d'une chose, aller se battre contre l'Allemand, le Prussien, le Hongrois, gagner ses galons non plus sur les bancs de l'académie, mais sur un navire de guerre, sur un navire en guerre.
+
+D'abord, les blessés revenus du front se font discrets. D'après Kourakine, ils se terrent parce qu'ils ont honte d'avoir dû revenir. Stoliaroff, qui hésite souvent à le contredire, finit pourtant par lâcher :
+
+- Non, ils ne se cachent pas, on nous empêche de les voir, c'est tout. Mon cousin, et il est pourtant artilleur, pas fantassin, il a perdu un œil et la moitié d'une main. Et depuis qu'il est revenu, il ne cesse de se plaindre, de dire que c'est une guerre qui ne sert à rien.
+- C'est lui qui ne sert plus à rien pour cette guerre, dit Kourakine. Nous arrêterons le Prussien comme nous avons arrêté le Corse, et c'est tout. Nous arrêtons toujours ceux qui menacent la Sainte Russie et au final, l'Europe nous remercie, parce qu'ils l'ont dévorée avant de s'attaquer à nous.
+- Ceux qui reviennent sont ceux qui sont blessés, normal qu'ils soient aigris, dit Vsévo. Ce ne sont ni les morts, ni ceux qui sont encore au front, en train de remporter des victoires.
+
+Chacun veut encore y croire, chacun rêve d'un uniforme d'active, de porter les épaulettes de son père. Entre les leçons et les exercices, les professeurs excitent le patriotisme des élèves et il ne se passe pas une journée sans qu'on chante la marche des Cadets :
+
+_" Que chacun croie et sache que les rayons du soleil perceront les nuages, un jour nouveau resplendira, et alors, à leur fourreau pourront retourner nos épées."_
+
+Mais on saisit parfois des bribes de conversation, des échos, et Kourakine fait aussi, sous forme de confidence, des comptes-rendus de ce qui se dit dans le salon de son père. Il termine à chaque fois d'un air docte, avec une sentence ou un aphorisme :
+
+- Je crois qu'il vaudrait mieux quelques défaites franches qui galvaniseraient l'esprit de revanche de notre peuple plutôt que ces rumeurs de désarroi dans les hautes sphères.
+
+Il tarabiscote ses phrases, comme toujours, mais cette fois, on sent un un flottement, il n'ajoute pas son sempiternel, "c'est tout." Les trois garçons sont assis sur les marches des quais de la Neva et un vendeur de journaux, qui n'a pas l'air plus vieux qu'eux, annonce : "une émeute, encore une émeute, un journal intéressant."
+
+Kourakine, Stoliaroff et Vsévo ont plus de quinze ans, à présent. Kourakine connaît la Marseillaise par cœur.
+
+- C'est la modernité, les gars. Je les soutiendrais, moi, ces types qui demandent des réformes, si les juifs ne leur foutaient pas dans la tête des idées venues de l'étranger.
+- Tu joues à te faire peur avec la Révolution parce que tu es un Kourakine. Tu sais que quoi qu'il arrive, vous vous en sortiez bien, dit Stoliaroff, Mais nous…
+- Moi, ce sont les femmes qui m'inquiètent, dit Vsévo. Les soldats qui reviennent du front gardent les dents serrées, mais leurs mères, leurs sœurs, leurs femmes… Ce sont les femmes qui sont dans la rue.
+- Ah, ça, les femmes russes en colère…
+
+À présent, ils pensent aux femmes tout court : ils ont quinze ans.
+
+- Mon frère, il fréquente une danseuse depuis quelques mois. Mes parents attendent que ça lui passe. Et nous, alors ? dit Kourakine. 
+- Alors quoi, dit Stoliaroff. Aller se faire dépuceler au bordel ?
+- Au bordel avant d'avoir gagné nos galons ? dit Vsévo. Ce serait comme manger le dessert avant le plat de résistance. Et puis moi, je veux de l'amour. 
+- Et si la guerre finit avant qu'on sorte de l'Académie ? dit Kourakine. On va finir puceaux ?
+- S'il faut avoir fait la guerre pour baiser, alors c'est décidé, dit Stoliaroff, je suis contre les socialistes. Ils veulent que la Révolution commence pour que la guerre finisse, et je ne veux pas rester puceau !
+
+---
+
+# 13_Treize Le tsar abdique
+
+Treize
+
+Ça n'existe pas, "La Révolution". Pas pour ceux qui la vivent. Parce qu'ils en ont vécu d'autres, des manifestations, des émeutes. Une révolution qui réussit, c'est juste, pour une fois, une répression qui échoue.
+
+Personne ne sait, avant qu'elle tombe, que c'est cette goutte-là qui fera déborder le vase. Après, pour se rassurer, pour se dire que la prochaine fois on verra les choses venir, on dit : " la prise de la Bastille marque que le coup d'envoi de la révolution française," et on oublie que le peuple brûlait les bureaux d'octroi depuis des semaines.
+
+Mais il faut un récit glorieux pour asseoir le pouvoir une fois qu'on l'a pris. La preuve, c'est que les bolcheviques ont réussi à situer, pour toujours, la Révolution Russe en octobre et non en février. Parce qu'ils ne sont pas là, en février  mille neuf cent dix-sept, ou alors pas nombreux, parmi les ouvriers des usines Poutilov qui sont descendus dans dans la rue. Le huit mars, même si ce sont des mouvements socialistes qui l'organisent, la marche dans les rues de Saint-Petersbourg est intitulée "journée internationale des femmes contre la vie chère," pas "manifestation pour renverser le régime tsariste." Alors, est-ce que la révolution avait commencé, en février ? Ou le huit mars ? Est-ce qu'il a fallu attendre le onze, et que la police tire encore sur la foule ?
+
+
+Vsévo sait que pour son père, la révolution n'a jamais cessé de couver depuis ce dimanche sanglant de janvier 1905. C'étaient déjà les ouvrier des usines Poutilov qu'un certain Gapone avait fait descendre dans la rue. Et son association de travailleurs, ce n'était rien d'autre qu'un syndicat. Mais il l'avait monté pour ainsi dire à la demande de la police, et puis il était prêtre, pas bolchevique. Et il n'avait pas tort, qui veut voyager loin ménage sa monture, et les Smirnoff, les Tchijoff, tous ces directeurs de manufacture et d'usine, ils auraient mieux fait de gérer le mécontentement en amont. Que ce soit avant ou après l'abolition du servage, il n'y a jamais eu de révolte sur les domaines de la famille Gousseff, qu'il s'agisse de Staryi Krym ou de Theodosie.
+
+Mais on avait tout réformé à l'envers. Trop vite, et trop peu, et mal. Il aurait fallu remettre à leur place les patrons, et on aurait remis à leur place les ouvriers, de l'ordre, bon sang, et au lieu de ça, on a dû tirer sur la foule. Et comme pour s'en repentir, on a fait ces réformes à la va-vite. Sans ouvertement critiquer le Tsar, Valéry n'avait pas apprécié le manifeste de 1905, et encore moins la désastreuse réforme agraire de Stolypine, qui avait réussi à appauvrir les nobles sans enrichir la plupart des paysans. Après tout, c'est à ce moment qu'on a laissé se créer les soviets.
+
+Mais malgré la Douma, malgré l'alternance incohérente de nouvelles libertés et de nouvelles répressions, depuis plus de dix ans, le Tsar reste le Tsar, les capitaux étrangers affluent toujours, et la Russie rattrape son retard industriel sur le reste de l'Europe, et s'il n'y avait pas… Oui, Vsévo l'a surpris, quand il en parlait en Crimée, lui, son père, le héros de la guerre des boxers, lui dont il espérait porter un jour les épaulettes de colonel, son père avait dit : "s'il n'y avait pas cette foutue guerre. Non seulement elle détourne l'acier des chantiers ferroviaires, mais en plus on s'y ridiculise. Tout ça pour aider les Français, et, pire, les Anglais."
+
+Ce "on" n'était pas "nous, les Russes", c'était "eux, les industriels."
+
+" On voudrait que le moral des soldats nous porte vers la victoire alors que pendant la bataille des Carpates on leur a livré des balles qui n'allaient pas dans leur fusil, et  ?"
+
+Pour Vsévo, Stoliaroff et Kourakine, l'image de la guerre devient floue. Leur impatience d'aller y faire leurs armes, de montrer leur valeur et d'y apprendre à commander cède la place à une vague angoisse, celle qu'on ressent quand on monte à l'échelle d'un plongeoir, un mélange d'excitation et d'appréhension. Et si ça se passait mal, là-bas ?
+
+La hiérarchie fait tout pour que l'académie  reste une enceinte étanche, pour empêcher que les cadets réalisent à quel point ça se passe mal. Là-bas, au front, mais aussi ici. 
+
+Car depuis la Révolution de février remontent les accords d'une musique qui en ce lieu paraît irréelle. Dès le premier mars, le gouvernement provisoire a promulgué le décret numéro un. 
+
+- Je te dis qu'ils organisent des comités de soldats, dit Kourakine. 
+- Et alors, qu'est-ce que ça change ? Ils vont avoir le droit de se plaindre de la roulante ? Eh, c'est quoi cette tambouille ? raille Stoliaroff. 
+- Si c'était ça, tant mieux. Mais il paraît qu'ils récusent leurs officiers...
+- Comment ça, ils récusent leurs officiers, demande Vsévo ? 
+- Ben, ils veulent élire leurs officiers eux-mêmes, dit Kourakine. Ils ont aboli la peine de mort dans les rangs, et il paraît que ça déserte en masse. Les trouffions veulent retourner au village. 
+- C'est donc ça que mon père craignait. Il me disait que des agitateurs arrivaient au domaine alors qu'ils devraient être au front, dit Vsévo. 
+- Bien-sûr, ça tourne un peu de travers, mais quand ils comprendront qu'ils vont se retrouver à la botte de l'Allemand et du polonais, les déserteurs, paysans ou pas, ils vont y retourner, au front, je vous le dis, moi, pour la Patrie, la foi et le Tsar ! dit Kourakine. 
+
+Et puis, comme les bielles d'un moteur, après avoir longtemps tourné de travers, se bloquent d'un coup, leur monde mental s'effondre lorsque le Tsar abdique.
+
+Pour tous les cadets, c'est la consternation. Une sidération qui devrait arrêter le temps.
+
+Mais le temps ne s'arrête jamais, et l'ambiance de liesse à Petrograd contamine même les élèves de l'académie.
+
+Kourakine applaudit les gouvernements provisoires, toujours à poser au philosophe des lumières. La montée des soviets inquiète Stoliaroff, comme s'ils allaient venir lui demander des comptes à lui, pour les fautes des officiers du front. Mais tous reconnaissent qu'il se passe quelque chose. À tous les coins de rue, ou des boulevards, on voit des bandes de gueules noires qui écoutent des types debout sur des caisses.
+
+---
+
+# 14_Quatorze Notre ministre Kerenski
+
+C'est fini, on ne traite plus Vsévo et ses congénères comme des enfants. Pendant des mois, les professeurs tentaient de maintenir une barrière étanche entre l'académie et la vie extérieure, la vie civile. La ligne de mire, c'était la ligne de front, du moins si la guerre durait encore deux ou trois ans. 
+Maintenant, on ne les prépare plus à la guerre, mais au maintien de l'ordre. C'est que le pouvoir ne sait plus sur qui il peut compter. Dans les tranchées, la nouvelle du décret numéro a fait naître ce qu'il peut y avoir de pire au sein d'une armée en guerre : le flou. Des nouvelles de massacres d'officier remontent vers Petrograd.
+
+Les soldats les plus loyaux restent au front, mais tous les soldats du front ne comptent pas rester loyaux. Cette guerre interminable qu'on livre pour les autres, les Anglais, les Français, les soldats ne veulent plus en entendre parler. Les blessés et les déserteurs remontent vers l'arrière et ils sont forcément un terreau favorable pour la propagande bolchevique. Qui est encore prêt à obéir aux ordres après trois hivers passés dans des tranchées glaciales ? Après trois récoltes perdues ? On mobilise des réservistes pour protéger les bâtiments publics, mais ils sont encore moins fiables que les autres. Non-seulement on ne sait rien de leur loyauté, mais en plus leurs réflexes militaires sont émoussés. 
+Le lieutenant instructeur Fédorov est remplacé par des officiers d'active : on passe de l'instruction à l'entraînement. 
+
+Kourakine disparaît pendant deux jours. Il revient livide, silencieux mais agité.  
+- Mon oncle est mort. 
+- Mort ? dit Stoliaroff ? Mais comment ? 
+- De quoi veux-tu qu'il meure ? C'est la guerre, à l'ouest, ça ne te dit rien ?
+- Oui, mais, c'est un officier...
+- Tu crois qu'on devient immortel quand on reçoit ses galons ? demande Vsévo. 
+Pourtant, c'est vrai qu'inconsciemment, pour eux tous, le combat, le danger, c'est pour les hommes du rang, et pour les gars comme eux, les sous-officiers, ou des lieutenants, à la limite. Les colonels, comme l'oncle Kourakine, comme le père de Vsévo, ou ses oncles, les généraux, ça dirige depuis l'arrière. 
+
+Et puis Vsévo comprend soudain ce qu'a voulu demander Stoliaroff, sans vraiment oser. Qui a tué l'oncle Kourakine ? Un allemand, un prussien ? Ou un soldat bolchevique refusant d'aller se faire tuer contre eux ? 
+
+Stoliaroff tente d'alléger l'ambiance et il raconte à Kourakine comment on leur a enseigné le maniement des mitrailleuses pendant son absence. Le tac-a-tac et tout le corps qui tremble. Kourakine tente de montrer de l'intérêt, mais on sent qu'il n'y est pas. Il a l'air plus agité que triste. 
+- Tu étais très proche de ton oncle ? 
+- Non, dit Kourakine, ce n'est pas ça. 
+Stoliaroff se tait, un peu vexé que son récit de mitrailleuse n'ait pas plus de succès. 
+- C'est le Tsar, dit Kourakine après un silence. Ils m'ont raconté pourquoi il a abdiqué, comment ça s'est passé. Il voulait sauver la Russie, il ne voulait pas que le peuple détruise la monarchie sous prétexte qu'il n'aime plus son monarque. 
+- N'empêche, dit Vsévo, on ne se démet du pouvoir accordé par Dieu comme on décide de céder les clefs d'une usine, juste parce qu'on est fatigué que les ouvriers soient mécontents. L'oint de Dieu, dit mon père, c'est un honneur et c'est une charge. 
+- Tu ne comprends pas. Il a demandé leur avis aux généraux de l'état major. Pas un ne l'a dissuadé. Et maintenant, ils se plaignent tous de sa lâcheté, alors qu'il n'a fait que les écouter. 
+- Et maintenant, on a ce drôle de double pouvoir, dit Vsévo. On ne sait plus qui décide qui. Le gouvernement provisoire ? Le Soviet ? Et jusqu'où ? Quand mon train a fait un arrêt à Koursk, il y avait des bagarres entre les soviets des ouvriers, des paysans, des soldats et les gars du Zemtsvo. 
+- C'est de la connerie, cette histoires de soviets, dit Stoliaroff. Alexandre II a voulu réformer, ils l'ont assassiné. Alexandre III, lui, il a créé l'Okhrana* (* police politique du tsar), il  maté les anarchistes, et c'est grâce à lui que la Russie devient une nation européenne et un pays moderne. 
+- Oui, enfin, s'il n'avait pas décidé de mourir tout seul à quarante-neuf ans, dit Kourakine, les nihilistes l'auraient peut-être bien faut sauter, lui aussi. 
+- Notre capitale, est moderne, Stoliaroff, dit Vsévo, mais entre ici et la Crimée, la Taïga n'a pas changé depuis Saints Cyril et Méthode. On vit moins vieux quand on est ouvrier ou mineur que quand on est paysan, tu parles d'une modernité ! Pas étonnant qu'ils soient dans la rue.  Mon père dit que la solution, c'est la technique. On s'en fout, de savoir si un ministre est KD (constitutionnel démocrate) ou Socialiste révolutionnaire, il nous fait marrer, Marx, on s'en fiche de savoir à qui appartiennent les moyens de production, ce qu'il faut c'est qu'ils soient efficaces. Ce qu'il faut c'est améliorer les machines pour que les ouvriers russes soient heureux d'y bosser, et que les autres pays nous envient. 
+- Et eux, dit Kourakine, les ouvriers, ils finiront par rappeler le Tsar, parce qu'ils verront bien que lui, il n'a que la Russie au cœur. Ce n'est pas le cas des patrons d'usine, des syndicats, et encore moins des bolcheviques et de tous les parasites qui vivent de la colère du peuple. 
+
+La cloche sonne le rassemblement. Un officier qu'ils ne connaissent pas va prendre la parole. Il n'a pas un uniforme de la Marine. Avec l'agitation des marins de Kronstadt, les cadets sentent qu'ils doivent plus que jamais prouver leur loyauté. 
+
+" Cadets, l'été arrive. Certains d'entre vous ont presque achevé leur formation. Qu'ils n'écoutent pas l'agitation des faubourgs. La Russie respectera son engagement auprès de ses alliés, vous irez soutenir ces alliés ! Partout ! Sur la Baltique, en mer noire, en mer du nord, s'il le faut.
+Pour les autres, pour vous, les plus jeunes, qui vous sentez privés de cet honneur, notre ministre attend de vous..."
+
+Il laisse sa phrase en suspension. _Notre ministre._ Le ministre de la Guerre et de la Marine, c'est Kerenski. Il y a un mouvement parmi les cadets. Chacun se demande si Kerenski est son ministre. Chacun se demande si Kerenski est le ministre de son voisin. Un socialiste révolutionnaire ! Est-ce que certains sont fatigués des brimades des officiers ? Au contraire, est-ce que certains pensent qu'on laisse s'installer le désordre ? Kerenski, un menchevique, pas un bolchevique comme Lénine. Lénine, qu'on a laissé revenir de l'étranger, avec la complicité des allemands. Kerenski, un menchevique, donc, un fragile... Maintenant qu'on n'a plus de Tsar, qu'au moins ça change vraiment. Qui est la peste, qui est le choléra ? Et tous gardent le silence car personne ne sait ce que pense son voisin. 
+
+" Notre ministre veut que vous l'aidiez à maintenir l'ordre. Le premier ministre Guéorgui Ievguienievitch Lvov et lui vous demandent de prendre votre part dans le maintien de la stabilité de notre pays. Le lieutenant Fédorov vous transmettra les détails des affectations des Cadets. La Russie compte sur votre loyauté."
+
+
+
+---
+
+# 15_Quinze La ligne de fracture de la foi
+
+- Qu'est-ce que ça veut dire, la loyauté ? Maintenant qu'il n'y a plus de tsar, à qui est-ce qu'on doit être loyal,  à qui est-ce qu'on peut être loyal ? 
+- Tu ne sais plus qui défendre ? Demande toi qui combattre ! dit Stoliaroff. *Tout le pouvoir aux soviets,* c'est ce qu'ils crieront encore demain. Si c'est le soviets des soldats, des ouvriers et des paysans qui décide du sort des officiers de Marine, il vaut mieux arrêter l'Académie et devenir menuisier comme mes aïeux.* (* Stoliar veut dire menuisier. Les noms de famille dérivant d'un nom de métier sont rarement des noms de famille de haute noblesse)
+- Et toi, Vsévo, t'en penses quoi ? dit Kourakine.
+
+Vsévo y pense depuis des mois, sans oser en parler. L'okhrana, la police politique du tsar, existe encore. Dieu sait à qui elle rapporte maintenant. Au ministre, sûrement. 
+Un soldat ne devrait pas avoir à penser à la politique. Certains disent que le général Korniloff veut devenir ministre des armées. Mais il parle plus de redresser la discipline dans les rangs que de gagner la guerre contre les puissances centrales. C'est vrai, les marins de Kronstadt sont comme une mer qui gronde, une houle qui se lève et chaque vague menace déferler sur la ville.  Maintenant, on change de Douma tous les quatre mois, et le gouvernement est toujours  "provisoire." 
+
+- Moi, dit Vsévo, je crois qu'on est au-delà de la loyauté. Ce qu'il faut éviter, c'est le bordel, le bardak, le chaos. Sinon, si le pays s'écroule, qui décidera à qui on doit obéir ? Les Allemands, les Prussiens, les Polonais ? 
+- Être loyal aux Polonais ? Kourakine se réveille. À des catholiques, des papistes ? Voilà, il faut être loyal à l'orthodoxie. Ce qui unit la Russie, de tes moujiks de Crimée à mon père à moi, ce qui soude le peuple russe, c'est l'orthodoxie. 
+
+C'était il y a longtemps, loin, bien avant les enclaves, le Saint Empire Romain Germanique n'existait pas encore, l'empire Carolingien n'existait déjà plus. La chrétienté avançait, et partout on sentait que c'était elle qui consoliderait les pouvoirs. Deux frères, deux moines, deux érudits de Théssalonique furent envoyés au nord de la mer noire. Là-bas les Khazars avaient embrassé le judaïsme, mais le nouvel évangile n'était pas encore parvenu jusqu'à eux. Les deux religieux, Cyril et Méthode, savaient que jamais la chrétienté ne pourrait conquérir l'Orient en latin, en grec ou en hébreu, il faudrait conquérir les slaves avec la langue qui parlait à leur cœur. Cyril et Méthode forgèrent une liturgie, un alphabet, et arrachèrent du Pape Adrien II l'autorisation de s'en servir pour conquérir l'Orient. Ils ne savaient pas que ce qu'ils voyaient comme une oeuvre de conquête de la chrétienté unie allait dessiner la ligne de fracture qui déchirerait l'Europe pour des siècles, une ligne invisible autour de laquelle les hommes continuent aujourd'hui à s'entre-égorger sans vraiment comprendre pourquoi.
+
+---
+
+# 16_Seize Le peuple ukrainien doit être libre
+
+_" Nos principales demandes sont les suivantes : que le gouvernement Russe déclare publiquement, par un acte spécial, qu'il ne s'oppose pas à la volonté populaire de l'Ukraine et au droit de notre peuple à l'autonomie. Sans rompre avec l'État russe, le peuple Ukrainien doit être libre de vivre sa propre vie sur son propre sol."_
+
+Premier *universal* de la rada d'Ukraine. 
+
+Pour Stoliaroff et Kourakine, le premier universal de la nouvelle assemblée d'Ukraine est une nouvelle parmi d'autres dans l'ambiance générale de délitement de la réalité. Mais la Révolution vient de frapper Vsévo au cœur. Depuis l'abdication du Tsar, l'Empire a perdu son Nord. La Révolution fait tourner la Russie sur elle-même, c'est une force centrifuge qui menace d'éjecter tout ce qui est en périphérie. Du Caucase, déjà, étaient parties des salves de contestation : la conscription pesait trop lourd sur des peuples qui ne comprenaient pas en quoi cette guerre à l'ouest méritait qu'on y envoie leurs fils. Et puis la Finlande, les Baltes, toutes les marges de l'Empire. 
+
+Mais pour Vsévo l'Ukraine n'a jamais été à la périphérie. Pour lui, qui est né à Mohilev, la petite Russie, la Russie blanche, la Rus de Kiev, sont les aïeules d'un seul empire, et l'empire est une famille, sa famille, la famille de son père, la patrie. Il reçoit la nouvelle sans pouvoir la comprendre. 
+
+Aucun des colons qui ont travaillé dur à cultiver une terre qui n'était pas la leur ne peut comprendre qu'elle cherche à rejeter celui qui l'a rendue fertile. Aucune famille abusive ne peut comprendre celui ou celle qui cherche à la quitter. Vsévo passe sa nuit les yeux ouverts, incapable d'esquiver les questions qui accélèrent son souffle. 
+Et si l'Ukraine devient indépendante, le domaine de Strayï Krym, la maison de Théodosie, pourra-t-on les garder ? 
+
+Où est son père, à présent ? Sur quel front le colonel du génie a-t-il été envoyé à nouveau ? Et s'il lui arrivait malheur ? Que deviendraient-ils tous ? Il aura sûrement prévu de mettre sa nouvelle femme à l'abri, elle et son fils ? Mais la mère de Vsévo ? Et Vsévo lui-même, avec qui ira-t-il vivre ? 
+
+C'est le clairon, c'est le réveil et Vsévo a l'impression de n'avoir pas dormi. Mais aujourd'hui, on saura au moins où l'on montera la garde. 
+
+
+---
+
+# 17_Dix-sept La révolution en chanson
+
+Tout a commencé en chansons. Toutes les marseillaises, la française, et celle des étudiants, celle des travailleurs, issue d'un poème de Lavrov. C'est elle que le gouvernement provisoire a choisie comme hymne après l'abdication du Tsar. Peut-être pour contrer la popularité montante de *l'Internationale* des bolcheviques. 
+On a entendu les deux au début de la manifestation, avant que les slogans ne prennent le dessus, puis que l'un deux remplace tous les autres : "Tout le pouvoir aux soviets !" 
+
+Cette fois on sent l'influence des bolcheviques sur la foule. " Tout le pouvoir aux soviets !" 
+À côté de Vsévo, le Garde-Marine ( Note Bas de Page : élève officier de dernière année avant de devenir Mitchman, soit sous-lieutenant) attend une instruction, les mains crispées sur la mitrailleuse. "Tout le pouvoir aux soviets." Ils sont moins d'une dizaine d'hommes pour défendre ce bâtiment d'où les jeunes conscrits partent au front. Vsévo a beau être du bon côté de la mitrailleuse, c'est la foule qui semble avoir le dessus, comme un animal trop bête pour comprendre le danger qui l'attend. Elle s'avance. Trop. Vsévo entend un ordre qu'il ne comprend pas bien. Le servant de la mitrailleuse tire une salve de semonce vers le ciel. La foule la plus proche se comprime avec un cri de surprise, suivi de quelques secondes de stupeur. Plus loin, comme ignorant le drame qui se prépare à quelques mètres d'eux, des manifestants chantent encore un couplet de Lavrov. 
+
+En réponse, comme en rythme, le bruit de la mitrailleuse, puis d'une autre, en face. Dès les premières rafales, c'est la conscience de Vsévo qui se fragmente. Tac tac tac. Une joue entière arrachée, impossible à ne pas voir. Les paroles de l'hymne, sans musique, sans mélodie, répondent en écho aux détonations : *"Nous irons vers ceux qui ont faim."* Une femme court, les jambes entravées par sa robe, secouée par une rafale. *" Debout, debout, travailleurs."* Un marchand opportuniste venu vendre ses pastèques aux manifestants est projeté au sol. Est-ce du sang ou la pulpe d'un fruit qui constelle le bâtiment, derrière ? Tac tac tac, comme la caisse claire d'une fanfare militaire, *" Allons parmi les frères souffrants."* Au milieu du carrefour entre la rue Sadovaïa et la perspective Nevski, les cadavres s'amoncellent déjà. Un cheval sans cavalier se cabre, hennit, piétine un corps pour faire demi-tour et s'enfuit, et la cadence de ses sabots refuse de s'aligner sur celle des mitrailleuses. *"La faim alors que les autres profitent, alors qu'ils jouent en bourse . "* Un homme court si vite que ses pieds ne touchent pas le sol quand la rafale l'atteint. Sans appui, son corps bascule, horizontal dans l'air, suspendu un instant avant de s'abattre, et sa tête rebondit contre un rail de tramway. *"En avant, le peuple crie vengeance."* Un autre homme, au contraire, tient son manteau plié sur son avant-bras. Il a son chapeau sur la tête, il s'éloigne à pas tranquilles, comme si l'insurrection ne le concernait pas. 
+*"Dans ta sueur, l'avare déchire ta dernière miette de pain."* Des marins attrapent leur couvre-chef et le tiennent à la main. Même lorsqu'ils fuient pour sauver leur vie, il ne faut pas perdre un élément de l'uniforme où ils seront battus à la revue du lendemain. 
+
+Les manifestants qui fuient dans la rue Sadovaïa tombent sous les balles. D'autres, plus lucides, désertent le centre de la perspective Nevski et s'enfuient en rasant les bâtiments. *" Contre les voleurs et les chiens, contre les riches..."* Une femme s'enfuit, penchée en avant, sans courir. C'est qu'elle protège une enfant, qui doit avoir huit ou dix ans. Pour le moment, les balles les épargnent, mais personne autour ne vient les protéger. 
+*" Et monte vers une aube sanglante le soleil de la vérité et de l'amour fraternel."* Trois hommes trébuchent, touchés aux jambes. Seul l'un d'eux a le temps de mettre ses mains en avant. Ils se relèvent tous les trois en boitant. *" Et l'amour fraternel..."* Certains fuient, d'autres s'avancent, le flux et le reflux : ce sont des gardes rouges. Des milices qui s'organisent toutes seules, par usine, qui ne prennent d'ordre ni des socialistes révolutionnaires ni du gouvernement provisoire. *" Et l'amour fraternel..."* Vsévo reçoit des éclats de pierre sur le visage. Puis un coup au ventre. Un marin lui arrache une épaulette, le cogne, et le cogne encore et soudain s'abat sur le sol. La silhouette qui s'effondre laisse apparaître une femme en uniforme, terrifiante, le fusil encore fumant, et qui déjà bouscule Vsévo et s'installe derrière la mitrailleuse. Tout est allé si vite que Vsévo n'a même pas vu mourir le soldat qu'elle remplace derrière la mitrailleuse. La soldate appartient aux bataillons de femmes que Kerenski a enfin autorisé à se former. Ces guerrières loyalistes veulent faire honte aux soldats qui refusent le combat sur le front de l'Ouest. La tournure des événements a soufflé au ministre de la guerre d'en garder quelques compagnies pour appuyer les cadets restés loyaux. 
+La sidération fait place à l'instinct de survie et Vsévo passe à la soldate une bande de munitions. Déjà, les échauffourées se sont déplacées plus au nord, les bruits de balle s'éloignent. *" Et monte vers une aube sanglante, le soleil de la vérité et de l'amour fraternel."*
+
+
+
+---
+
+# 19_Dix-neuf Une membrane poreuse
+
+La Russie n'a jamais eu conscience de son corps. Quand la couronne britannique construit son empire, elle sait sans aucun doute qu'elle conquiert, qu'elle soumet des peuples extérieurs, tout ce qui n'est pas l'Angleterre isolée par la mer est soit un allié, soit un ennemi, soit une colonie potentielle. 
+
+La Russie, elle, ne sait ni quand ni où elle est née, Rus de Kiev ?, Varègues ?, et elle ne sait surtout pas où commence l'étranger. 
+
+En 1917 l'Empire Russe compte plus de musulmans que l'empire ottoman, et le Tsar, clef de voûte qui fait tenir l'édifice tant bien que mal, a abdiqué au mois de mars. Le gouvernement provisoire sait qu'il faut une nouvelle mythologie pour éviter l'effondrement. Ce sera l'élection d'une assemblée constituante. Pas un jouet dans les mains du Tsar, comme le furent les premières doumas, non, une assemblée élue par tous. Les femmes comme les hommes, les Russes comme les Inorodtsy, les indigènes, comme on dénomme les habitants des contrées satellites, et par un scrutin libre, c'est à dire un scrutin secret. 
+
+Après le traumatisme des journées sanglantes de Juillet, la loi électorale arrive comme un nouveau souffle d'espoir pour un peuple épuisé par les manifestations, la guerre, les privations, et l'ambiance générale de défiance, de complots et d'exaspération. Les cadets ne parlent que de cela. 
+- De toutes façons, ils vont les annuler, dit Stoliaroff. 
+- Sûrement pas !, dit Kourakine, pas après le bardak des négociations pour définir les modalités de vote. Vous auriez vu les délégations se succéder, dès le mois d'avril, pour choisir entre scrutin majoritaire et proportionnel ! Et qu'on s'écharpe sur le nombre d'habitants par député, et voilà que les azéris se foutent sur la gueule avec les arméniens...
+- Mais tu y étais, toi ? dit Vsevo ? 
+- Mon père, oui. 
+- Ton père gère les affaires des mencheviques?  
+- Tu parles, ils ont besoin de militaires de longue date pour aboutir à des accords. Surtout avec les Cosaques. Ceux-ci ne sont fidèles qu'au pouvoir, à la force, faut pas venir avec un bureaucrate social-révolutionnaire si tu veux qu'ils t'écoutent. Et puis heureusement qu'il y avait des nobles pour calmer le patriarche. Lui, il ne ferait voter que le clergé, s'il le pouvait. Il t'écraserait les mennonites, et je ne te parle pas des juifs, et de tout l'Ouest qu'il mettrait à feu et à sang. 
+- Déjà que les Allemands y sont, dit Stoliaroff. 
+- Ça motivera peut-être les troupes à regagner ces territoires, histoire de voter pour la première fois, dit Vsevo. 
+- C'est pas si simple. Entre ceux que la loi électorale considère comme des Russes, et qui voudraient être indépendant et ceux qu'elle considère comme indigènes et qui trouvent que ça les diminue... Regarde le Caucase : des russes, des azéris, des tcherkesses, des arméniens
+- Vous imaginez, les gars ? Une assemblée constituante ? Fini le bordel, et on n'aura plus de leçons à recevoir des alliés. On sera l'empire le plus démocratiques ! Plus démocratiques que les français ! Eux, ils ne laissent pas voter les femmes !
+- Avec un peu de chance, ça remontera le moral des troupes, et on finira cette chienne de guerre par la victoire !
+- Sauf que la guerre, on la perd, dit Kourakine. Depuis l'échec de Kerenski, en juin, l'armée est comme une voile qui faseye. 
+- Faudrait retendre le nerf de chute, dit Stoliaroff, content de prolonger la métaphore maritime. 
+- C'est pour ça que Kerenski a nommé Korniloff à la tête de l'état major des armées. 
+- Sauf que vous ne connaissez pas Korniloff, il n'est fait que de nerf et ça pourrait provoquer notre chute, dit Kourakine. 
+- Qu'est ce que tu voulais qu'il fasse, Kerenski ?, dit Vsevo. Tant que les voiles ne prennent pas le vent, les coups de barre, c'est du théâtre. 
+- Kerenski a nommé Korniloff, très bien, finie la démocratie dans l'armée, et peine de mort pour les déserteurs, dit Stoliaroff. Mais bordel, pourquoi ils désertent ? Qu'est ce qu'il se passe là-bas pour qu'ils ne veuillent plus défendre la Russie ? 
+- Là-bas ou ici, dit Kourakine. C'est quoi, la Russie, maintenant ? Je veux dire, Vsevo, toi, moi, on a de la terre, on défend ce qu'on tient entre nos mains, mais eux ? La terre, ils sont en-dessous, ils creusent le charbon du Donbass, on les sort de là, on les fout au front ? Pour quoi ? Pour qui ? Pour le Tsar ou l'Église, oui, on se bat. Mais mourir pour Kerenski ? Tellement fragile qu'il fait appel à Korniloff pour abolir les réformes qu'il a lui-même décrétées en mars ? Mourir pour les Anglais qui nous ont laissés tomber face aux japonais il y a dix ans ? 
+- Attention, Kourakine, tu parles comme un Bolchevique. Ça va bientôt être notre tour, au front, tu vas te défiler ? 
+- Arrête ça, Misha, tu sais que je suis prêt à mourir pour l'avenir de la Russie.  Mais qui tient l'avenir de la Russie dans ses mains, tu le sais, toi ? Kerensky ? Korniloff ? Ou Trotsky et le soviet des ouvriers et des soldats ? 
+- Korniloff et Kerenski, franchement, c'est le mariage de la carpe et du lapin, dit Vsevo. 
+
+En fait de mariage, le divorce a lieu avant les fiançailles. Korniloff est un cosaque originaire du Kazakhstan. À Petrograd, on le prend pour un type un peu brutal. On raconte comment, encerclé par les japonais à Moukden, il s'est retrouvé à court de munitions. Au lieu de se rendre, il a motivé ses soldats, les a fait patienter tapis jusqu'à ce que l'ennemi vienne les cueillir, et là, ils ont chargé à la baïonnette, ils ont éviscéré  ce qu'il fallait d'adversaires pour s'en tirer et rejoindre le reste de l'armée en retraite. Bien-sûr, il veut rétablir une discipline impopulaire, mais les soldats savent que c'est un combattant, peut-être que leur soviet le soutiendra. 
+Kerenski, lui, pense qu'il arrivera à le piloter : ce n'est qu'un cosaque du Kazakhstan, Kerenski a fait l'université, il croit au triomphe de la ruse et de l'intelligence. Mais il oublie que Korniloff vient de là, de "l'intelligence", du renseignement. Korniloff ne tourne pas ses phrases aussi bien que Kerenski, mais il peut les dire dans une dizaine de langues : ses années de servicecomme espion militaire devraient rendre Kerenski plus méfiant. D'autant que derrière les coups de menton virils de Korniloff, il y a toute la Réaction, les patrons des usines, les directeurs des mines, tous les bourgeois, plus encore que l'aristocratie. 
+
+Mais les coups de mentons ne font pas gagner la guerre, et le mois d'août mille neuf cent dix-sept voit l'armée russe encaisser de nouvelles défaites, sur le front balte, sur le front sud-ouest. La propagande bolchevique prospère sur le rejet de cette guerre interminable, et Korniloff est un homme de réseau. De Petrograd lui parviennent des échos qui paraissent irréels : cette fois-ci, les bolcheviques sont prêts, ils vont prendre le pouvoir par la force. 
+Korniloff charge le général Krymoff de marcher sur la capitale avec le troisième corps de cavalerie pour libérer la ville. 
+
+Lorsque Kerensky lui demande de rappeler ses troupes, Korniloff lui fait répondre qu'il sait tout. Il sait que Kerenski n'est plus libre de sa parole, qu'il est otage des bolcheviques. Est-ce qu'il le croit vraiment ? Est-ce qu'il veut le croire parce qu'il est grisé par la possibilité de s'installer à la tête d'une dictature militaire ? Il y a chez les grands hommes une fine membrane poreuse entre l'ambition dévorante et le sens du devoir sacrificiel. 
+
+
+
+---
+
+# 20_Vingt Une balle dans le coeur
+
+
+Mais la marée s'inverse. Stoliaroff, Kourakine et Vsevo sont envoyés avec d'autres cadets au sud de l'Amirauté. 
+- Oh, mais je te reconnais, toi. T'es le cadet qui nourrissait ma mitrailleuse. 
+La deuxième compagnie du premier bataillon de femmes est restée à Petrograd. Kourakine fait la moue. Il murmure à Stoliaroff :
+- Tu parles d'une époque, au lieu de défendre les femmes, c'est elles qui nous défendent. 
+Il a murmuré trop fort. 
+- Tu ne nous défend pas, tu nous obéis, Cadet. On ne vous apprend pas à reconnaître les grades, à l'école navale ? Sous-lieutenante Ioura Alexandrevna Bakhmietieva.
+Les cadets se redressent mais ne vont pas jusqu'au salut militaire, peu sûrs de qui ils dépendent vraiment. 
+
+Après l'installation vient l'attente. Au départ, la tension serre les mâchoires. Puis on s'habitue, on se relâche, on s'ennuie. Et des nouvelles arrivent d'on ne sait où, comme portées par le vent. 
+- Qu'est-ce qu'il fout, alors, Korniloff. Il remonte ou quoi ? 
+- Tu parles, lui, il est resté sur le front, je te rappelle qu'il a une guerre à cesser de nous faire perdre. 
+- Bon, mais Krymoff ? 
+- Il n'avance plus. 
+- Pourquoi il n'arrive plus, il hésite ? 
+- Non, c'est les bolcheviques. 
+- Quoi les bolcheviques ?
+- Ils soutiennent Kerenski, maintenant. 
+- Mais ils le traitaient d'affreux petit bourgeois hier ? Je croyais qu'ils lui demandaient la tête de ses dix ministres capitalistes ? 
+- C'est leur manière de l'affaiblir, tiens. 
+- Mais quoi, ils ont un corps de cavalerie, eux aussi ? 
+Cette fois, c'est Stoliaroff qui parle. 
+- Ils ont mieux que ça. Ils ont les cheminots qui bloquent les voies ferrées, ils ont les ouvriers qui creusent des trous dans toutes les routes, ils ont tous les télégraphistes qui empêchent la transmission des ordres. 
+La capitaine Bakhmeteva fait des allers et retours pour vérifier que chacun est prêt à repousser cet assaut qui ne vient pas, puis finit elle aussi par abandonner son maintien un peu théâtral et se mêle à la conversation. 
+- Oh, c'est pire que ça. Ils ont maintenant une vraie petite armée. Kerenski l'a pour ainsi dire reconnue. 
+- Quoi, les gardes rouges ?, demande Vsevo. 
+- Exactement. On va nous demander, à nous, de nous battre contre le chef d'état major Korniloff, nommé par Kerenski lui-même. Je vais t'avouer un truc, soldat. Nous, là, les femmes de ma compagnie, on a été virées par la commandante Botchkarova. Elle nous trouvait trop molles pour aller mourir en Pologne, en Ukraine ou en Lituanie. Elle a expulsé toutes celles qu'elle accusait de flirter avec les instructeurs... Flirter, tu parles, on nous a tondu les cheveux, comme à n'importe quels soldats. Il suffisait qu'on rie devant un officier pour qu'elle nous mette dehors. Je vais te dire, quand on lui a demandé qui elle recruterait pour la relève, elle a répondu : "Quelle relève ? Nous irons là-bas, et nous mourrons." Alors celles qui sont là, elles ne rêvent que de se racheter. Mais on préférerait mourir au front, même avec Korniloff, que de se battre ici contre lui, aux côtés des gardes rouges. 
+
+Vsevo remarque que parmi les soldates, certaines font la moue, pas certaines d'adhérer à ce que la capitaine Bakhmetieva vient de dire. Et après trois ans de guerre et six mois de révolution, c'est aussi le cas de certains soldats du général Krymoff.
+
+Pourtant, Krymoff est monté avec la division sauvage, ces Cosaques dont la fidélité est attisée par le goût du pillage. À quelques kilomètres de là où attendent les femmes et les cadets, le train de Krymoff est arrêté par les cheminots. Les soldats ne savent pas comment réagir. Ils s'attendaient à être accueillis par la troupe, et c'est une foule qui les harangue, menée par quelques députés bolcheviques qui les accueillent sans agressivité. Le visage contre la vitre de son wagon, Krymoff voit ses soldats faire défection par dizaines. Il accepte alors d'aller rencontrer Kerenski. 
+
+On renvoie les cadets à l'Académie. Sur le trajet, on voit les gardes rouges défiler en plein jour autour de leurs usines. 
+
+Le premier septembre, Kourakine rejoint Vsevo et Stoliaroff, la mine défaite. 
+- Krymoff... Mon père lui a parlé, hier. Il venait de voir Kerenski. Il lui a expliqué que c'était pour défendre le gouvernement provisoire que Korniloff les avait envoyés, pour défendre le gouvernement légitime contre le soviet de Petrograd, contre les bolcheviques. Mais Kerenski a fait semblant de ne pas comprendre. 
+- Tu parles, il a eu peur de la bête qu'il a lui-même appelée à la rescousse, dit Stoliaroff. 
+- Korniloff sera arrêté aussi, maintenant. On y verra peut-être plus clair quand ils seront jugés, dit Vsevo. Ton père aura bien des oreilles qui traînent au tribunal militaire, non ?
+- Oh, pour Krymoff, il n'y aura pas de procès, dit Kourakine tristement. Il s'est tiré une balle dans le cœur hier soir. 
+
+
+---
+
+# 21_Vingt-et-un En fevrier la foule en octobre
+
+Il n'y a pas eu de Révolution d'Octobre. Une révolution, c'est le peuple qui n'en peut plus, c'est la colère qui agglutine les opprimés, d'abord sourde, d'abord compacte, une colère habituée à se taire, puis qui se métamorphose en espoir, en un chant, des chants, des Marseillaises, des Internationales, puis des slogans et soudain, comme un torrent se déverse le peuple que personne ne contrôle. En Février, la foule, c'est une révolution. 
+
+En Juillet, déjà, les bolcheviques tentent de lui passer un licol, de tirer sur la bride : il ne faudrait pas qu'un soulèvement mal organisé serve d'excuse pour revenir à l'ordre passé. Il faut laisser la contre-révolution faire le premier mauvais pas. 
+Le putsch de Korniloff est l'épouvantail dont Lénine et Trotsky rêvaient. Dès le mois d'août, Finis les chants, finis le désordre et l'improvisation. Finis les poings, les pierres, les cris. Chacun chuchote : qui sait qui soutient qui ? On crée le comité militaire révolutionnaire. Ses agents sont discrets, ses agents sont partout, jusque dans les écoles de cadets, les académies de Junkers, ils vous disent, d'un air de confidence :
+
+- Regardez, les gars, le gouvernement provisoire avait promis de laisser la garnison ici, pour protéger Pétrograd. Mais ceux qui défendaient le peuple, ceux qui savent qu'on fait une guerre idiote au service des capitalistes, ils les ont envoyés au front. Encore un peu de temps et ce sera votre tour !
+- J'espère bien, dit Kourakine. Tu crois que ça nous fait peur ? Tu nous a pris pour qui ? Dans un an, on passera Junkers, et ensuite, on embarquera, et on leur montrera qui contrôle la Baltique, la Mer du Nord, on leur montrera à ces connards de Prussiens . 
+
+Il est plus facile d'ébranler la loyauté d'un marin dont la solde ne suffit pas à faire vivre sa famille, celle d'un artilleur qui laisse derrière lui deux enfants, un fantassin dont les camarades de régiment ne sont pas revenus, ou pire sont revenus estropiés, que de convaincre des adolescents brûlant de prouver leur valeur. 
+
+Kerenski le sait, et c'est eux qu'il convie sur la place des palais pour célébrer le départ des renforts du bataillon de femmes. Au pied de la colonne d'Alexandre, parmi ces mille soldates qu'on a arrachées à leur entraînement inachevé, Vsevo reconnaît Ioura Bakhmietieva. Il lit sur son visage la fierté d'aller défendre la Russie et le soulagement de se soustraire aux luttes intestines de la capitale.  Elle ne sait pas encore qu'elle n'ira nulle part. 
+
+Kerenski se rend ensuite au palais Marinisky. C'est là que siège le "Conseil de la République." L'affaire Korniloff a repoussé la tenue des élections, et c'est ce "pré-parlement" qui tient lieu d'assemblée législative. 
+
+On ordonne aux cadets et aux junkers, leurs aînés, de défendre la place, mais sans ordres précis. Même la chaîne de commandement n'est pas claire. Parfois le directeur d'une des académies se présente, leur propose de rejoindre l'école, et ceux qui veulent partir font semblant de croire que ces ordres priment sur ceux du gouvernement provisoire. Les autres s'organisent d'eux-mêmes. On utilise le stock de bois de chauffage pour monter des barricades tout autour du palais, puis on grimpe dessus pour essayer de distinguer les manœuvres de la garnison qu'on devine fidèle aux bolcheviques. 
+
+Kerenski, devant les députés, fait ce qu'il sait faire le mieux : un discours. Il lui faut convaincre ses troupes, les mencheviques, mais aussi l'aile droite des socialistes révolutionnaires. Quant aux KD, les démocrates constitutionnalistes, eux, sont avec quiconque est contre les bolcheviques. Kerenski est un meilleur orateur que Lénine. " Êtes-vous, oui ou non, pour la République de Russie ? Nous avons repoussé le coup d'état droitier qui menaçait son existence. Laisserons-nous aux bolcheviques ce que nous avons arraché à Korniloff, une Russie nouvelle ? Les soviets menacent chaque jour de s'en prendre à ma personne, et c'est sans importance. Ce qui est de la plus haute importance, en revanche, c'est qu'ils menacent Petrograd, ils menacent la démocratie naissante, ils menacent Février, il menacent la Russie. Voulez-vous, oui ou non, défendre la Russie ? "
+
+Rassasié d'applaudissements, Kerenski retourne au palais d'hiver, pour tenter de contrer les manœuvres pilotées depuis l'institut Smolny. C'est à Smolny qu'il a forcé le soviet de Pétrograd et le comité central exécutif des soviets à déménager, prétextant des travaux au palais de Tauride, où ils étaient jusqu'alors installés. C'est au palais de Smolny qu'on inculquait les bonnes manières aux jeunes filles de l'aristocratie tsariste, symbole humiliant pour rappeler à Lénine et Trotsky qu'ils ne décident pas tout.
+
+Février s'est décidé dans les usines, Octobre s'est joué dans des palais. Tout est déjà décidé quand les troupes se mettent en route, et se rendent maîtres d'un bâtiment officiel après l'autre. Mais pour l'acte final, les deux camps semblent paralysés par le doute.
+
+Les informations que les junkers redescendent aux cadets après leurs briefing avec les membres du gouvernement sont partielles et contradictoires. 
+- Le soviet des cosaques dit qu'il va envoyer des hommes, dit l'un. 
+- Pour nous défendre ? demande un autre. 
+- Bien-sûr, pour nous défendre. 
+- Mais combien d'hommes ? 
+- Pour le moment on parle de deux sotnias. 
+- Deux-cents hommes ? C'est un début. 
+
+Mais personne ne vient. 
+
+- Ils veulent maintenant qu'on couvre la place des palais depuis les fenêtres du rez-de-chaussée, personne dehors. Et ils ne veulent pas qu'on tire les premiers. 
+- Et le bataillon de femmes ? Le capitaine Leskoff est encore là ? 
+- Et les cadets, qu'est-ce qu'on fait des cadets ? 
+
+Les cadets transmettent les messages, ils se font engueuler parce qu'ils parlent un peu trop au bataillon de femmes, puis ils finissent les barricades, ils grimpent dessus pour voir ce qu'il se passe. 
+- Eh, les gars, voilà les Cosaques ! dit Kourakine. 
+- Non ? Les Cosaques du bataillon de la mort ? demande Stoliaroff, resté au bas de la barricade. 
+- Oui, les ouraliens barbus sont arrivés. Cette dégaine ! Ils font peur rien qu'à les voir. 
+- C'est vrai qu'il en imposent. Viens voir ces barbes, Mikhaïl, dit Vsevo.
+- Tu parles, c'est la honte pour toi, t'as pas assez de poils pour te faire pousser la moustache réglementaire répond Stoliaroff en riant. 
+- C'est dingue, les Rouges les laissent passer comme si de rien n'était, dit Vsevo. 
+
+Sur la place, quelques autos blindées arrivent, mais personne ne sait qui elles sont venues défendre. Au mouvement qu'elles font on finit par comprendre qu'elles veulent empêcher l'affrontement. 
+
+- Des blindés pacifistes, on aura tout vu. Ils vont se faire tirer dessus par tout le monde ! 
+- Attendez, ils laissent encore passer cinquante hommes.
+- Bon, je viens voir, dit Stoliaroff en escaladant la barricade... Mais il a une jambe de bois, là, leur capitaine. 
+- C'est le chevalier de Saint-Georges, dit Vsevo. 
+- Bravo, on nous envoie des invalides de guerre, maintenant. 
+- N'empêche, Misha, ça commence à coller, dit Kourakine. Pas vrai Vsevo ? 
+
+Vsevo ne répond pas. D'où ils sont, on peut voir la Néva. Plusieurs navires de guerre remontent, l'un deux est à quai devant le pont Nicolas. Face au désordre qui règne dans le palais, la rigueur des manœuvres des insurgés est ce qui inquiète le plus les cadets. Ils reconnaissent les manœuvres d'encerclement dont on leur a appris les secrets. 
+
+Les allers et retours de Kerenski entre le palais et le bâtiment de l'état-major ne rassurent pas les défenseurs.
+
+- On dit qu'il se fait engueuler par les généraux. 
+- Ça promet. 
+- Regardez, les gars, sur le pont du palais. C'est des matelots. 
+- Tu crois que c'est encore ceux de Krondstadt ? 
+- Ceux-là nous réservent un traitement spécial, dit Vsevo. 
+- Mais à la fin, pourquoi ils nous en veulent à ce point, dit Kourakine. Je veux dire, nous aussi on a le droit aux verges, aux pompes, aux baffes quand on fait une conneries. Nous aussi on nous réveille à quatre heures du matin pour faire des parades à la con. Et nous aussi on ira mourir s'il le faut. 
+- Oui, mais pour un seul officier qui meurt, combien de veuves de soldats?, dit Vsevo. Combien d'orphelins, combien...
+- Ce n'est pas ça, les gars, coupe Stoliaroff. C'est que nous, on deviendra junkers, on deviendra sous-officiers, on finira par donner les ordres. Eux, ils deviendront soldats, ils resteront soldats, et à la fin de la guerre, ils redeviendront ce qu'ils étaient avant, des ouvriers, des mineurs, des paysans, des manœuvres, et leurs enfants après eux. 
+- Mais toi, Misha, t'as un grand-père menuisier, un grand-père minottier,  et ils se sont battus pour que tu sois officier, pas pour détruire l'Empire. 
+- Eh, les gars, vous montez un soviet, ou quoi ? les interpelle un junker. 
+
+Il leur rappelle qu'il faut couvrir la place depuis les fenêtres en façade. 
+
+- Mais il n'y a plus de place aux fenêtres !
+
+Le junker les emmène au palais, avec trois autres cadets, mais il ne semble pas savoir où il va. On croise des laquais dans des livrées impériales, qui tentent d'obéir aux ordres improbables des ministres et de leurs équipes. Certains ont l'air terrifié, d'autres semblent revenus de tout. 
+
+Qu'est-ce qui est réel, qu'est-ce qui est spectral ? 
+
+On croise enfin un capitaine. 
+- Qu'est-ce que vous faites là ? Non, je ne veux pas le savoir, vous venez avec moi. On vient de nous apprendre qu'il y a un passage qui mène des caves du palais jusqu'aux baraquements du régiment Preobrajensky. Il y a une porte, épaisse, et barrée de l'intérieur, vous allez la garder. 
+- Mais si la porte est scellée, mon capitaine... regimbe un des cadets, un artilleur si on en croit son uniforme. 
+- Le passage est bien assez large pour qu'ils y amènent un canon, et s'il s'en servent, il faut que la porte soit gardée. 
+- Mais s'ils ont un canon et un régiment... cinq cadets, est-ce que ce sera suffisant ?
+
+Il y a quelques semaines, jamais un cadet n'aurait osé parler ainsi à un capitaine. On remonte au rez-de-chaussée pour chercher d'autres cadets sans poste précis, puis le capitaine disparaît sans avoir donné d'ordre clair. 
+
+Dehors, des coups de feu éclatent, du côté de la rue Milionnaïa, celle qui mène au régiment Preobrajenski, justement. Les femmes se défendent contre une escarmouche des insurgés. Soudain, la peur, soudain l'excitation, soudain Ioura Bakhmietieva qui reconnait Vsevo : 
+
+- Cadet, on n'a que des fusils. Va demander qu'on nous apporte des Maxims !
+
+Mais ces mitrailleuses, de conception anglaise, sont toujours pointées vers la place du palais et les soldates se contentent des fusil.  Pourtant leur violence surprend les assaillants. Ils se replient vers l'Annexe du palais sous le feu des femmes qui ne rationnent pas leurs munitions. Les rouges tentent de forcer l'immense porte métallique, qui se tord, se bloque, on ne peut ni entrer, ni sortir. 
+
+Et à nouveau l'attente, à nouveau le silence, ou pire, les bruits de couloir.
+
+- L'intendance ne suit pas. 
+- Ils n'ont même pas assez de bottes pour tous les cosaques, alors de fusils !
+- Et pas assez de bouffe pour tout le monde. Personne ne sait quand sera le prochain repas. 
+- Quelqu'un a du tabac ? 
+
+Il est neuf heures du soir quand on apprend que les cosaques ont quitté le palais. Ils ne veulent pas rejouer le mois d'août, où on a perdu tellement d'hommes pour rien. Les fiers ouraliens barbus ont négocié avec les assiégeants une sortie honteuse, mais sans danger. 
+
+Kerenski lui-même est allé chercher des renforts.
+
+- Des renforts, tu parles, il s'est carapaté. 
+- Les gars, il faut vite monter vers la place, il y a des junkers qui se rendent !
+
+On ne sait pas qui a lancé l'appel, ni si c'est pour les remplacer ou partir avec ceux qui font défection. Quand on y arrive, la nuit est percée par la lumière électrique des lampadaires de la place. Les junkers qui sont restés sont à la fois visibles et aveuglés. On crie sur les domestiques, on cherche l'électricien du palais, mais il n'y peut rien, tout ça est piloté par une centrale aux mains des bolcheviques. 
+
+Une nouvelle rumeur se répand : l'état-major est tombé. 
+
+Pour le bataillon de femmes, c'en est trop. Coincées dans un palais, entourées de civils incapables de rien quand les généraux qui peuvent sauver la Russie, et surtout les envoyer sur le front, sont prisonniers des bolcheviques. Elles tentent une sortie, inconscientes de ce que la nuit et les réverbères leur ont masqué. Celles qui ne se rendent pas immédiatement doivent courir, courbées, vers le palais. 
+
+Dans les couloirs, on croise maintenant des groupes d'assaillants qui semblent un peu perdus. On devrait se tirer dessus, mais de chaque côté, personne n'est sûr de qui il croise : cadets des différentes écoles, junkers, quelques cosaques qui ont choisi de rester,  invalides de Saint-George... On croise même des blessés du front, puisqu'une aile entière du palais fait office d'hôpital militaire depuis déjà plusieurs mois. 
+
+Vsevo, Stoliaroff et Kourakine sont à nouveau dehors. On leur a dit de ne pas monter sur les barricades de bois de chauffage, d'éviter de se faire tuer bêtement, mais on leur a aussi dit qu'ils étaient les mieux à même de renseigner sur l'activité des navires aux mains des insurgés. On leur a même laissé les jumelles d'un officier. 
+
+Et tout ce qu'ils voient, c'est que la vie à Petrograd ne s'est pas arrêtée. Là, de l'autre côté de la place, ou au-delà de la Neva, les restaurants n'ont pas fermé, des bourgeois sortent des cinémas. Et quand tout cela s'arrête, c'est simplement parce qu'il se fait tard, on n'est plus en été, les nuits blanches sont finies. 
+
+Au palais, pourtant, personne ne dort, inutile de faire des tours de garde, les nerfs sont tendus, chacun attend l'assaut. 
+
+- Sérieusement, dit Kourakine, qu'est-ce qu'ils foutent ? 
+- C'est vrai, on est combien, ici, dit Stoliaroff, mille ? Peut-être même pas mille. Ils sont quoi, dix fois plus nombreux ? Trente fois, cent fois plus ?
+- Peut-être qu'ils ne le savent pas ?, dit Kourakine. 
+- Tu parles, avec ceux qui se sont rendus, ceux qui sont simplement rentrés chez eux, pas un ne les aurait rencardés ? dit Stoliaroff. 
+- Un signal, dit Vsevo après un silence. Ils attendent un signal. Ils ont planifié ça pendant des mois. Ils ont peut-être prévu le cas où ils n’auraient pas réussi à prendre le central téléphonique, alors ils ont décidé d'un signal ? 
+- Ou alors, ils ne savent pas quel comité central, quel soviet des soldats et des paysans, quel commissaire au peuple est habilité à déclencher l'assaut ? dit Kourakine. Ah, elle est efficace leur démocratie !
+
+Avant même qu'on l'ait essayée, la démocratie, en Russie, fait l'unanimité contre elle. L'aile droite lui préférait la figure paternelle du Tsar, et l'aile gauche lui reproche son parlement bourgeois et ses ministres capitalistes. 
+
+Vers deux heures du matin, la barricade sursaute. 
+
+- Ils tirent sur le palais ! Là, depuis le croiseur Aurora. 
+
+Vsevo, crâneur, dit simplement : 
+- Je vous l'avais dit, les gars, un signal. 
+- Mais pourquoi tu dis ça, lis nous tirent dessus pour de bon, dit Kourakine. 
+- Tu rigoles ? Tu as vu le bruit, tu as vu la lumière ? C'est un tir à blanc, un signal, tu vas voir...
+
+Et ils voient. L'assaut final est enfin déclenché. On imagine qu'un tel face-à-face, un quasi corps-à-corps fait des pertes terribles. Mais le rapport de force est trop défavorable. Les junkers et les cadets sont repoussés de la place aux barricades, des barricades à la cour, de la cour aux couloirs, aux escaliers, aux étages, et on finit par prendre les membres du gouvernement provisoire, allongés sur des matelas, fatigués, ou ivres, effrayés. L'ordre est donné de capituler. On est là, en uniforme, en sueur, le cœur encore battant, et il faut rendre les armes. 
+
+La troupe menace les junkers mais traite les cadets comme des galopins mal élevés. Il y a des menaces, des insultes, et on est escortés vers la forteresse qui sert de prison. 
+Arrivés là-bas, on ne sait pas trop quoi faire de ces cinq cents garçons, fiers mais glabres. Une fois enfermé le bataillon des femmes, il n'y a même pas assez de place. Aucun formulaire n'est prévu, alors on fait promettre aux cadets de ne plus jamais agir contre le pouvoir légitime. 
+
+- Légitime, mon cul, dit Kourakine une fois qu'ils sont dehors. 
+
+Dès le lendemain, le deuxième congrès des soviets adopte le décret sur la paix, qui promet aux soldats l'arrêt immédiat de la guerre. Puis le décret sur la terre, qui promet aux paysans la redistribution des terres. 
+
+Pour Kourakine, Vsevo et Stoliaroff, les aubes nouvelles qui se lèvent ont l'arrière-goût des fins du monde. 
+
+
+---
+
+# 22_Vingt-deux Plus ca change et plus c est pareil
+
+DEUXIEME PARTIE
+
+Chapitre vingt-deux
+
+Après les élections, la foule avait répondu à l'appel, massée aux abords du palais où se tenaient les membres de ce parlement qu'on lui avait appris à haïr, depuis des mois, avec des mots sans cesse plus simples. "Les élites ne vous comprennent pas, ils vous privent de la grandeur à laquelle vous avez droit , ils travaillent dans des bureaux, dans des chemises à col blanc, vous travaillez dans des usines, des garages, dans des champs, et vos cous sont rougis par vos bleus de chauffe."
+
+Les premiers arrivés au meeting semblaient timides : une vie entière de complexes, ou bien la peur de la violence qu'ils sentaient en eux, les derniers restes de conscience avant de commettre l'irréparable. 
+
+En face, il n'y avait pas assez de gardes. D'abord, on penserait que personne n'avait compris à quel point la menace était sérieuse, plus tard, on comprendrait que ça aussi, ça avait été orchestré. 
+
+Petit à petit, la foule s'est tassée, densifiée jusqu'à devenir incompressible, à s'insinuer dans les interstices. Est-ce qu'il y a eu un signal ou était-ce un phénomène physique ? Un phénomène naturel de mécanique des fluides ? Une fois dépassée cette limite, les esprits ont basculé et la foule est devenue une meute incontrôlable. Les immenses escaliers ont été pris d'assaut. Le gaz humain était toujours trop dense alors quelques acharnés ont escaladé directement les murs et leur arrivée sur la terrasse a repoussé ceux qui y étaient déjà. 
+
+Pourquoi est-ce que les gardes n'ont pas tiré à ce moment là ? Avant tout parce qu'ils n'étaient pas là, en tout cas pas tous ceux qui auraient dû l'être. La garde républicaine a été retenue, volontairement, et le contingent habituel de policiers a dû défendre seul le capitole contre la horde des Trumpistes. "Make America Great Again !" 
+Insensible à l'ironie du message, un homme entre deux âges s'est servi du manche en métal sur lequel il a fixé un drapeau américain pour frapper un représentant des forces de l'ordre mis à terre par la foule. 
+Certains gardes n'ont pas tiré, à ce moment-là, parce qu'ils étaient biberonnés, eux aussi, au complotisme le plus halluciné. " Stop the steal !" Depuis des mois, les soi-disant conspirations de l'État profond leur sont révélées par des prophètes numériques sur des réseaux où l'on échange des *memes,* des vidéos de chats et des théories sur le covid, le vaccins, les démocrates, sur les juifs qui allument des feux en Californie depuis l'espace, grâce à leurs satellites lasers. Un utilisateur portait le pseudo Qanon. Il leur racontait les soirées pédophiles des illuminatis, les alertait contre ces choses horribles que sont la sécurité sociale, l'égalité raciale, il leur désignait les combats qui rendraient enfin sa grandeur à l'Amérique : lutter contre l'avortement, contre l'homosexualité et aussi contre les livres, ces saloperies utilisées par les profs libertaires des universités libérales qui perturbaient nos enfants innocents en les obligeant à prendre conscience que nos grand-pères possédaient des esclaves, que nos pères n'étaient pas obligés de s'asseoir à côtés des noirs dans le bus et que nos fils avaient le droit d'aimer un garçon ou une fille si ça leur chante. 
+
+Dans sa ferme à troll numérique de Saint-Pétersbourg, Evgueni Prigojine n'en revenait pas. Qui aurait pu croire qu'un monceau de données, quelques algorithmes un peu obscurs et une armée de travailleurs du clic suffiraient à faire sortir le Royaume-Uni de l'Europe et l'Amérique de la démocratie ?
+
+La vraie erreur de Lénine, quand il a théorisé l'agit-prop, était de croire que l'agitation avait besoin de la propagande. Les débiles  ne lisent pas les programmes. Ils ne les comprendraient pas. Ce qu'il faut, c'est qu'ils se sentent perdus, qu'ils aient peur, et avant tout peur qu'on leur demande de rendre des comptes, de prendre leurs responsabilités. Ils se foutent des idées, ils perdent à tous les coups sur le plan des idées. Il leur faut un chef qui les défende. La figure du chef est la figure du père. 
+Bien-sûr il gueule, il se moque des handicapés, il se vante d'attraper les femmes par la chatte, mais c'est un homme, un vrai, un père, un père qui réussit, pas comme le leur, pas comme eux devant leurs enfants, un père qui passe à la télé. 
+Et si ça n'avait pas été lui, ç'aurait été un autre, ils ne manquent pas, les christo-fascistes prêts à se faire corrompre par l'argent du gaz russe. 
+
+Aujourd'hui, alors que Donald Trump est inculpé de plus de quatre-vingt chefs d'accusation, que le droit à l'avortement a pratiquement disparu d'une dizaine d'états américains, qu'on parle d'enseigner à nouveau le créationnisme, la société se polarise, en face, on débat de la virilité du barbecue, et face au délitement on entend cette petite musique, celle qui permet au totalitarisme de s'installer dans les esprits : la démocratie est trop faible face à un tel niveau de menace. Hitler est arrivé au pouvoir par les urnes, c'est bien la preuve que les gens sont débiles. 
+
+C'est à ça, précisément, qu'il faut faire attention. À la tentation de se dire : "Qu'est ce qu'on fait des débiles ? "
+C'est difficile à admettre, mais non, la moitié de la population américaine n'est pas composée de débiles. Bien-sûr, même ici, des soignants qui refusent de se vacciner en pleine pandémie, la pensée jaillit, une étincelle involontaire : "qu'est ce qu'on fait des débiles ?" Cet ami avec qui j'ai fait des études en biologie : "j'ai pas confiance. " Et cet autre, qui m'a aidé à comprendre quand certaines notions de statistiques m'échappaient encore : "J'ai pas confiance."
+
+Ces gens ne sont pas des débiles, ils ont attrapés la débilité comme on attrape une maladie. Le vecteur de la maladie, c'est le torrent d'information dans lequel on se noie, les réseaux dont les algorithmes mettent en avant les contenus qui choquent. C'est eux qui provoquent la polémique, donc l'engagement, on reste, on clique, et on voit plus de publicités, ça crée plus de revenus, c'est aussi simple que ça. L'agent infectieux c'est le doute, qui mène à la peur et la méfiance se transforme en débilité contagieuse. 
+
+Bien-sûr, tout le monde n'attrape pas le covid, ou pas une forme grave, il faut avoir un terrain, un facteur de risque, être obèse, être vieux, être malade d'autre chose. Tout le monde n'attrape pas la bêtise, il faut être insatisfait, fatigué, insécure, il faut être seul, mal éduqué, mal entouré, privé d'amour. 
+
+Le totalitarisme, comme une bactérie pathogène, ne se développe pas dans un écosystème sain. Il se développe sur une pourriture pré-existante. Il faut l'exploitation systématique des usines Poutilov pour faire émerger un Gapone, puis un Lénine, un Trotsky, un Staline. Il faut la pauvreté crasseuse qui suit la crise de vingt-neuf pour que fleurissent un Benito Mussolini, un Adolphe Hitler. 
+La seule nouveauté du trumpisme, c'est que les dictateurs précédents croyaient encore qu'il fallait promettre au peuple ce qui est bon pour lui : la réforme agraire, la fin des inégalités. La désignation des boucs émissaires ne servait qu'à faire oublier qu'on ne savait pas comment faire. Là, le dictateur se contente de dire à ceux qui survivent à l'aide des allocations : " les allocations, c'est le socialisme, c'est mal. Les pères fondateurs nous ont appris qu'il faut se faire tout seul, comme moi !"
+Il se contente de dire à ceux qui crèvent du diabète parce que l'industrie pharmaceutique américaine fait une marge de mille pour cents sur l'insuline : "l'assurance maladie pour tous, c'est le socialisme, c'est mal," et à tous les latino-américains dont les parents ont été traités de wetbacks : 'l'immigration, c'est le socialisme, c'est mal, on va construire un mur et c'est eux qui paieront !"
+
+
+
+---
+
+# 23_Vingt-trois Ce qu ils doivent a la France
+
+Avant mon premier voyage en Russie, je n'avais pas le sentiment d'être un petit-fils d'immigrés. Dans l'inconscient collectif des années quatre-vingt, les immigrés avaient la peau plus sombre, ils travaillaient dans le bâtiment, ils avaient une ribambelle d'enfants pas très bons en classe. L'ironie c'est que ma mère bourgeoise et catholique avait quatre frère et sœurs, qu'elle voulait autant d'enfants, alors que mon père n'avait qu'un frère. 
+Mes parents étaient tous les deux les enfants inattendus de la fin de la guerre. Peut-être que leurs pères ont ressenti cette fièvre de propager la vie qui suit les massacres de masse. Tous les deux avaient une grand différence d'âge avec leurs aînés, mais cette différence avait eu des conséquences différentes pour chacun. Ma mère, malgré la folie joyeuse des trente glorieuses,  s'inscrivait dans une tradition d'avant-guerre, comme pour rester aussi proche que possible de ses sœurs . 
+Mon père, lui, cherchait à s'émanciper de ce frère de 13 ans son aîné, qui, à cause des circonstances après-guerre, l'avait en pratique élevé. La nostalgie de leur mère pour le pays perdu, les espoirs de soulèvement anti-soviétique, de *perevorot*, très peu pour lui. Mais dans les deux familles, il y avait cette ambiance, des gens passaient, jouaient de la musique, il y avait un piano, et chez ma mère, une harpe, et chez mon père, toujours ce don des Russes de faire apparaître des guitares. 
+
+Mais mon père ne chantait pas la nostalgie des steppes ou les soleils fatigués sur la neige. À la fin des années cinquante, le jazz est dans toutes les oreilles, dans toutes les caves de Saint-Germain des prés, alors Tchekhov, Dostoievski, bof, mais Wes Mongtomery, Kenny Burel, Sydney Bechet... Mon père s'achète une des premières guitares électriques disponibles en France : une imitation de Gibson Les Paul fabriquée par les frères Jacobaci et vendue au magasin Major Cone, à Pigalle. 
+
+J'ai fait de la guitare comme j'ai appris le russe à l'école dans l'espoir vain de me rapprocher de mon père, alors que lui en a joué pour s'extirper de la nostalgie du sien. 
+Vers douze ou treize ans, j'ai commencé à prendre le train pour aller, seul, à l'église orthodoxe la plus proche de chez nous, alors que mon père n'y mettait pas les pieds. 
+A quinze ans, j'ai commencé à ne lire que des auteurs russes, alors que mon père lisait les mémoires du général De Gaulle et achetait le 45 tours de l'hymne de campagne présidentielle de 1988 : "Ensemble, JACQUES CHIRAC, en avant, toute la nation."
+
+Même s'il parlait un russe parfait -entendre, aristocratique- un russe pas encore entaché de ces dégradations soviéto-linguistiques que déplorait ma grand-mère, si je lui demandais : 
+- Papa, comment on dit origines, en russe ? 
+Il me répondait
+- Les dictionnaires, ce n'est pas fait pour les chiens, je ne vais pas faire tes devoirs, non plus. 
+
+Quand je lui demandais de me raconter un peu l'histoire de sa famille, en général, il disait : " Qu'est-ce que tu veux que je te raconte ? " 
+
+Comme tous les pères du monde, comme moi, j'imagine, avec mon fils adolescent, il pouvait répéter cent fois des épisodes qui montraient combien sa génération était plus méritante que la nôtre. " À ton âge, si je voulais voir des copains, je ne demandais pas à mon père, de me conduire, je marchais jusqu'au pont de Saint-Cloud, là, je prenais le 92, puis le métro et..."
+Curieusement, il s'arrêtait avant l'âge où sa mère lui avait acheté une mobylette, puis une voiture, qu'il avait plantée dans un mur avant que sa mère ne l'aide à en acheter une autre. 
+
+Parfois, tout de même, il expliquait : " Quand ils sont venus en France, ils n'avaient plus rien, même plus de pays. L'URSS, ce n'est pas la Russie. Alors les Russes qui passent leurs dimanches à la cathédrale de la rue Daru et qui envoient leurs enfants aux Vitiaz*, ce serait pas mal qu'ils se rappellent ce qu'ils doivent à la France, au lieu de tout faire pour que leurs enfants parlent français avec l'accent de Petersbourg. "
+
+\* (scouts russes)
+
+
+
+---
+
+# 24_Vingt_quatre deux lignes brisees
+
+C'est Oncle Lala qui a commencé à parler, avec sa manière si particulière, un peu traînante, un peu nasale, et une phrase qui semble toujours vouloir chanter plus que le français ne le permet. Et cette mélodie contraste avec le physique de mon oncle. Il ressemble à mon père, la même calvitie entourée d'une couronne de cheveux, le même regard bleu perçant, même si les yeux de Lala sont encore plus en amande, des yeux qui sont un trait d'union entre les origines nobles et suédoises de ma grand-mère et les frontières asiatiques de l'empire. Des pommettes assez marquées, et un visage expressif, qui passe de la séduction à la colère en une phrase. Une phrase qui, toujours, ressemble au chant d'un oiseau qui  s'efforcerait de parler. En français, on pose l'accent tonique à la fin de la phrase, comme un coup de menton pour appuyer son propos, alors qu'en russe, le sens d'un mot peut changer selon où l'accent tonique est placé. 
+
+Comme le sens d'une coutume peut changer selon l'endroit, selon l'époque : donner à son fils le même prénom que le sien est inconcevable aujourd'hui. Vsevo a appelé son premier fils Vsievolode. Sans doute en hommage à un grand-père dont je n'ai pas su retrouver la trace. En Russie, on appelle souvent les gens par leur prénom suivi de leur patronyme.  Vsiévolode Valériévitch,  Vsiévolode fils de Valéri. Vsevolode, fils de Vsiévolode, Vsiévolode Vsiévolodievitch. Mais "Vsiévolode vsiévolodovitch, à table !" c'est un peu long, alors on disait Lala. 
+
+Lorsque mon père est mort, je me suis promis, si j'arrivais à publier à nouveau un roman, de demander à l'éditeur d'ajouter un B entre mon prénom et mon nom, pour Borisevitch, fils de Boris.
+
+C'était il y a dix ans.
+
+Le lendemain de la dispersion de ses cendres dans un affluent de la Loire, j'ai commencé à chercher dans ses papiers, ses archives, enfin libéré de la peur qu'il se mette en colère. Il n'y avait qu'un cahier cartonné, du format d'un grand livre de comptes, dans lequel il avait noté une ou deux pages de réflexion sur l'entreprise, la société, les motivations humaines, quelques pages qui montraient que la liberté, pour des ennemis du communisme, c'était l'entreprise. Et puis plus rien. Pas de journal intime, pas de dossier sur l'histoire de la famille, rien.
+
+Si, un exemplaire de ces CDs que nous avions tous : FNAC CD-R Silver 650 Compact Disc Recordable: "Archives Gousseff Sokoloff." Ils contenaient le diaporama que Lala et ma cousine Catherine avaient préparé quand Lala avait décidé de raconter. Des documents d'archive et une carte retraçant le parcours de Vsevo, en bleu, et de celle qui deviendrait sa femme, notre Babouchka. Lala avait loué une salle, en Normandie, invité toute la famille. 
+
+Mais moi, j'étais trop loin. Même pas sur le même hémisphère. Sur une île volcanique, petit déjeuner face à l'océan indien, puis session de surf, chaque matin, avant d'aller faire le meilleur job dont on puisse rêver, et de finir la journée dans le cabinet d'un jeune psychologue roux qui me demandait d'une voix douce : 
+- Peut-être que vous n'avez pas encore déposé votre bagage ? Le fait que vous ayez choisi un emploi avec une clause de mobilité, c'est peut-être une façon d'entrer en contact avec votre identité d'exilé ? De petit-fils d'immigré ? 
+- Ou peut-être, ai-je répondu, que je suis mieux payé en expatriation ? Et que ça me plaît d'être payé pour voyager ? Je suis passé des plateaux d'Auvergne aux steppes semi-arides du Nord du Sénégal,  pour arriver ici, à La Réunion, où je parcours des pâturages d'altitude toute la journée. Qu'est-ce qui vous semble le plus probable, que ce soit un job de rêve ou votre interprétation à la Freud ?
+
+Mais quand j'ai quitté ce job de rêve, j'ai continué à valser, quelques mois ici, deux ou trois ans là, comme un de ces buissons desséchés que le vent fait valser dans les déserts américains. Tumble Weed. À chaque déménagement, on refait ses valises, on refait le tri, on revit un petit traumatisme du départ, jamais soldé. Les livres qu'on s'était promis de lire, mais dont les premières pages nous ont ennuyé, les livres qu'on a lus et qu'on s'était promis de relire, les cadeaux bien intentionnés dont on ne sait pas trop quoi faire, les disques qu'on croit aimer mais qu'on n'écoute jamais, toutes ces feuilles mortes qui font l'humus d'une vie sur lequel pousse l'avenir : Emmaüs, Le Bon Coin, déchetterie. Mais à chaque mise en carton de ma vie, il ressort, ce FNAC CD-R Silver 650 Compact Disc Recordable: "Archives Gousseff Sokoloff." Témoin du rendez-vous manqué. Vague reproche. La présentation gravée sur le disque contient assez peu de choses : il fallait être là, entendre oncle Lala. Mais il y a ces fichiers, ces photos et la carte, dessinée à main levée par mon oncle, deux lignes brisées : l'itinéraire de Vsevolode Valerievitch Gousseff et l'itinéraire de Tatiana Borisevna Sokolova, mes grand-parents. 
+
+
+
+
+---
+
+# 25_Vingt_cinq Ce rythme
+
+Je n'arrive pas à entrer en Ukraine. Sur la carte, à côté de moi, il y cette ligne brisée tracée à la main par mon oncle et qui part de Saint-Petersbourg, descend en Crimée, remonte et traverse les plaines d'Ukraine et remonte encore, en route vers Moscou, vers la victoire qui n'a jamais eu lieu. Ensuite il y a cette boucle entre le Dniepr et le Dniestr, cet enlisement sur ce qui sera la Bielorussie, ce qui sera l'Ukraine, ce qui n'était déjà plus l'Empire Russe et pas encore l'URSS.
+
+Il y a sur mon disque dur des archives numérisées, des articles, au-dessus de l'ordinateur, sur l'étagère, un mètre linéaire de livres sur l'époque. À l'écran, une ébauche de plan.
+
+Et je suis là, assis, un stylo à la main, et je n'y arrive pas, je n'arrive pas à emmener mon histoire en Ukraine. Chaque fois que je commence une phrase, la culpabilité me prend à la gorge. 
+
+Depuis plus de deux ans, près d'un demi-million de femmes et d'hommes, d'enfants, aussi, sont morts à cause de l'agression russe. Des Ukrainiens, des Russes, des Ingouches, des Tchétchènes, et quelques poignées de volontaires étrangers venus défendre le droit international, la démocratie.
+Je n'ai pas fait partie de ceux-là. J'ai regardé, très tôt, les appels, les filières sur les réseaux sociaux, j'ai téléchargé le navigateur sécurisé TOR, j'ai lu les appels de militaires français, plutôt rares vu la russophilie de notre armée...
+Mais c'était du théâtre pour apaiser le  sentiment d'inutilité coupable. Il n'y a jamais eu un scénario crédible dans lequel je serais allé me battre en Ukraine. Je n'ai même pas fait mon service militaire, à quoi aurais-je été utile ? 
+
+Plus tard, je regarde le reportage Vingt Jours à Mariupol. Insoutenable. Les bombes, les tirs, les drones. La petite main d'un enfant sur le muret qui mène à la cave où on descend pour s'abriter. Cet homme qui tire ce qui lui reste sur un chariot. Il traverse la ville sous les tirs pour rejoindre son ex-femme, qui, elle, a encore une maison. "Ils tirent, et moi je marche." 
+
+Et moi je pense au fils de mon amie de Saint-Pétersbourg qui sera bientôt majeur. Bientôt mobilisable ? Je pense à mon fils, qui a déjà 16 ans.
+
+Vsévo a presque 16 ans, lui aussi, lorsque Trotsky fait fermer toutes les écoles d'officiers. Il commence par l'académie navale, car c'est peut-être dans la Marine que le fossé entre les officiers et les hommes du rang est le plus infranchissable. "Les matelots sont les premiers lions de la Révolution." Les Cadets de Marine pourraient bien devenir les premières gazelles qu'ils dévorent.
+
+Dès le printemps 1917, Stoliaroff parlait des filières qui se mettaient en place pour rejoindre les mouvements de résistance au pouvoir qui se met en place. On disait alors que  rue Znamenskaia, l'Association des Armées Cosaques organisait des départs pour Novotcherkask, où l'amiral Bahrens accueillait des volontaires. 
+
+Pendant l'été, on dit maintenant qu'une organisation patriotique se met en place. Stoliaroff parle à nouveau du corps des Cosaques grâce à qui des officiers de la garde Ismaïlovski, et même des élèves officiers, sont passés au sud. On parle encore de Novotcherkask, mais cette fois, c'est le nom du général Alexeieff qui circule. Il y aurait une véritable Armée des Volontaires, et le nom fait rêver. Mais est-ce que c'est vrai ? Est-ce que ce n'est pas de l'agit-prop des Rouges pour tester la loyauté des ex-cadets ?
+
+Vsévo se retrouve chez sa mère. Sophie est apathique. Parfois on frappe à la porte, on lui demande où est son mari, et quand elle répond que c'est son ex-mari, ou qu'il travaille dans le bassin du Don, on fouille quand même le logement. Est-ce qu'ils cherchent l'ancien colonel, qu'on suspecte de vouloir contrer la révolution, ou simplement l'ingénieur civil qu'on assimile à la bourgeoisie réactionnaire ? Stoliaroff aussi loge chez les Gousseff. Pour le moment, rejoindre sa famille dans le Don ne serait pas prudent. Petrograd est suspendue. Plusieurs réalités semblent coïncider sans se fondre. Un matin, Vsévo trouve Stoliaroff habillé, déguisé, plutôt, avec une tenue d'ouvrier. 
+- Tu crois que ça  passe ? demande-t-il.
+- Tu es décidé ? dit Vsévo.
+- Oui, j'ai un cousin qui part avec les gens de la rue Znamenskaia. Tu veux venir ?
+- J'attends une lettre de mon père. Et ma mère me dit qu'elle ne veut pas que je parte sans autorisation de circulation.
+- Tu crois qu'un papier officiel te protégera si les Rouges pensent que tu pars rejoindre l'amiral Kolchak ? dit Stoliaroff avec un sourire las.
+- Je n'en sais rien. Peut-être qu'au contraire ça me protégera si on me prend pour un rouge quand je rejoindrais les Volontaires.
+
+Le soir, Stoliaroff ne revient pas. Kourakine, lui vient chercher Vsévo. Depuis la fermeture de l'académie, ses parents tentent par tous les moyens d'organiser un départ pour la France ou pour l'Angleterre. L'important est de sécuriser des fonds pour pouvoir continuer à faire des affaires depuis Londres ou Paris en attendant le rétablissement d'un régime plus stable. Ils ne disent pas "plus favorable". Ils ne disent pas "en attendant la restauration." Il faut avant tout de la stabilité, que les affaires reprennent, que la Russie ne soit pas à l'écart quand l'inévitable renouveau suivra la paix qui finira par revenir en Europe. 
+
+Mais la paix ne vient qu'en Russie. Les bolchéviques en avaient fait un slogan, un totem, pour se rallier les soldats fatigués de défendre les intérêts des bourgeois anglais et français. Le traité de Brest-Litovsk aurait dû apporter de l'euphorie aux soldats et du soulagements à leurs mères, à leurs femmes, mais Lénine, pour gagner du temps a perdu de l'espace. 
+L'Ukraine est la Biélorussie deviennent des pays à part entière, les Bolchéviques et les Allemands également persuadés que ces pays finiront sous leur influence.
+La paix a un parfum de gueule de bois et comment soigne-t-on la gueule de bois ? 
+
+- Allez, viens ce soir, dit Kourakine, on boira, il y aura des filles. 
+- Je ne sais pas, dit Vsévo, je m'inquiète pour Stoliaroff. 
+- Tu t'inquièteras demain, et tu iras rue Znamenskaia, ils te diront que c'est bon et tu auras passé une bonne soirée. Et puis j'ai une surprise. 
+
+Mais ni le vin géorgien ne la vodka ne parviennent à dérider Vsévo. Il sent l'ivresse, bien-sûr, et il faut qu'il s'assoie, mais une partie de lui regarde, analyse, comme si Kourakine et cette fille qu'il n'a jamais vue dansaient non pas sur du parquet mais sur de la glace trop fine. Un type qui fait du droit lui parle depuis tout à l'heure. Il soulève ses épaules comme s'il battait la cadence, mais il n'est  pas dans le rythme de la valse qui se joue derrière. Il fait bouger sa mâchoire comme s'il mâchait quelque chose, ou qu'il continuait à parler les lèvres soudées l'une à l'autre. Soudain il pousse vers Vsévo une petite feuille repliée sur elle-même, comme le paquet d'une lame de rasoir jetable. La musique s'est arrêtée Kourakine s'assied et lui demande : 
+- Tu n'as pas encore essayé ?
+Il ouvre le paquet, et de la pointe d'un coupe-papier il en extrait une poudre blanche. 
+- C'est de la cocaïne, ça va te filer de l'energie, ça va faire passer ton cafard, tu verras. 
+Vsévo repousse le bout de papier et s'en va. 
+
+Ce qui lui donne de l'énergie c'est l'imprimé  qu'il reçoit le lendemain, avec cachet de la marine une autorisation de circuler datée du mois de mars 1918. Après un aller-retour rue Znamenskaia, c'est au tour de Vsévo de demander à sa mère :
+- Tu crois que ça passe  ?
+- Où as-tu trouvé un uniforme de matelot ? demande Sophie.
+- Est-ce que ça passe, Maman ? dit Vsévo.
+- Mais pourquoi un uniforme de matelot ? Pourquoi pas un bleu de travail comme Stoliaroff ?
+- Parce que si on m'interroge, qu'est-ce que je connais le mieux : le travail à l'usine ou les ordres qu'on donne sur un navire ? Et puis, pour rejoindre papa en Crimée, je peux toujours dire qu'on m'a commandé de rejoindre la flotte de la mer noire...
+
+Sophia ne répond pas. Bien-sûr qu'il va rejoindre Valéry, bien sûr que c'est aux hommes de se battre. Mais c'est elle qui aurait dû repartir là-bas, après le divorce, parce que son nom de jeune fille résonne mieux dans les plaines du Donbass où ils se sont mariés. Sophia Viktorovna Kostienko. 
+
+L'injustice faite aux femmes s'étend même jusqu'après la mort. Dans l'absence de traces. On m'a dit que Sophia serait morte dans les années vingt, de maladie à cause des conditions très dures des premiers hivers de la Russie Rouge. Mais je n'ai pas de date, pas de trace, pas d'archives, et je ne peux que ressentir son cœur qui se serre ce matin du mois de mars 1918 quand elle embrasse son fils de pas encore seize ans, en uniforme de matelot. Il porte sur une épaule un sac marin qui contient tout ce qu'il possédera jusqu'à son arrivée en France.
+- Tu ne veux vraiment pas que je t'accompagne à la gare ?
+- Il ne faut pas, maman, il ne faut pas que j'aie l'air accompagné, je suis juste un matelot en transit, maman, transféré de Kronsdtadt à Odessa.
+
+Sophia aurait voulu ne pas pleurer. Mais elle sait, elle sent, elle, qu'ils ne se reverront pas. Vsévo a le cœur rempli de l'espoir de rejoindre Korniloff ou Alexeeff, l'espoir de renverser Lénine, et, maintenant qu'on a perdu la guerre contre les Allemands, il a le cœur rempli de l'espoir de gagner la guerre contre les bolcheviks. Sophia, elle a le cœur vide. 
+- Faut pas pleurer, maman, grâce à Dieu, nous serons de retour avant l'été, Korniloff, Alexeieff, Koltchak, ils réunissent des dizaines de milliers de soldats, d'officiers, ne t'en fais pas.
+
+Mais Sophie n'entend pas, elle colle son oreille sur la poitrine de ce fils qui la dépasse d'une bonne tête et elle écoute. Papam, Papam, ce rythme, son rythme. Elle voudrait lui parler comme lui parlait sa niania, des mots d'amour simples. Mais comment parler à ce fils presque adulte, happé par le monde des hommes, arraché pour toujours à celui des nounous, des mamans, et pourtant, c'est le même cœur, le même rythme. Ce rythme obsédant, ce rythme... Mais comment pourrait-on dire mieux ?
+
+
+---
+
+# 26_Vingt_six Ce rythme obsedant
+
+"Eh, toi, *Matross*, matelot, qu'est-ce que tu fous tout seul ? Eh, les gars, vous le connaissez ? C'est quoi, ton épaulette, t'es pas trop jeune pour être starchiï matross, hein ? T'es vraiment matelot breveté ? T'as perdu ta langue ou quoi ? Qu'est-ce qu'il y a, je te fais peur ? Qu'est-ce qui te fait peur, tu regardes ma balafre ? Tiens, regarde, regarde-la de plus près. 
+C'est la première blessure révolutionnaire que tu vois ? 
+Oh, recule pas comme ça, le camarade Trotsky en personne m'a félicité pour cette balafre. Et tous les matelots de ce train en ont au moins une. Quoi, tu renifles ? Je pue la vodka, c'est ça ? On est dans le train depuis vingt heures, tu croyais qu'on allait se contenter du samovar de grosse juive de pravodnitsa ? Eh, les gars, j'ai un matelot qui boit que du thé, là ! T'as peur de pas marcher droit ? T'as pas le pied marin ? Tiens, bois une rasade. Tu verras, le train tangue plus qu'un cuirassé. Allez, encore une. Quoi, non merci, tu te crois meilleur que nous ? Tu ne nous respecte pas ? Bois, je te dis, bleu-bite. Les gars, tenez-moi ce connard. Il a jamais vu la mer et il s'balade avec des épaulettes de strachyï. Pour qui tu te prends, moudak ? 
+Tenez-le, tenez-lui la tête, on va lui faire boire un coup à la santé du camarade Trotsky. Allez, et glou, et glou.... Et merde, foutu train, saloperies de rais, ça bouge. Tourne pas ta tête comme ça, j'en fous partout, ou va se faire engueuler par la provodnitsa. Tiens, la voilà qui se ramène. Allez, cul-sec. On lui achètera chacun un verre de thé, elle aura pas cœur à nous engueuler..."
+- Eh, toi, gamin, c'est quoi, ton nom ? 
+
+Elle ne s'adresse qu'à Vsévo. Les matelots relâchent leur emprise avec un air de "j'ai rien fait", et Vsévo répond : 
+- Matelot breveté Gousseff. 
+Il regrette d'avoir donné son vrai nom, mais au moins sa réponse colle à l'uniforme que lui a fourni l'association de la rue Znamenskaia. 
+- Bon, c'est bien toi que je cherche, dit la vieille femme. Enfin, pas moi personnellement, mais le commissaire du train. 
+Au mot commissaire les marins reculent pour de bon. La commission spéciale. La Tchéka. En quelques mois, elle s'est fait une réputation pire que celle de l'okhrana. Que la tchéka le recherche ou qu'il travaille pour elle, ce matelot à l'air de puceau ne peut attirer que des problèmes. 
+
+La femme entraîne Vsévo par le coude et quand ils sont assez loin des autres elle lui dit : 
+- Vous autres, cadets, vous croyez qu'il vous suffit d'enfiler un uniforme de trouffion ou un bleu de chauffe, mais on croirait toujours que vous êtes à la parade. Tu as intérêt à te planquer. Il y a deux jours ils en ont débarqué deux à Koursk. Je ne sais pas trop ce qui leur arrive, mais il paraît que vous avez promis par écrit de ne pas gêner la révolution, alors face à un tribunal populaire... Allez, ne proteste pas, même si t'es qu'un simple mateolot, ils vont te casser les dents pour ne pas avoir voulu boire avec eux. Le wagon après celui-ci, c'est celui des malles, tu peux peut-être t'y planquer, moi, j'ai du thé à servir." 
+Entre les deux wagons, pas de kondouktor, pas de provodnik, pas de samovar. Par la porte qu'il vient d'ouvrir, Vsévo voit à peine la campagne. Les aubes nouvelles qui se lèvent... Tu parles, toujours la même campagne, le blé qu'on devine en herbe, les bois avec les bouleaux en lisières, les résineux derrière, ces villages tristes, quelques maisons de planches que les festons qui décorent les pentes des toit égayent à peine, et quand, enfin, un étang ou, miracle, une colline cassent la monotonie de ces étendues interminables, les villageois reconnaissants ont construit une église.
+Vsévo pourrait sauter du train n'importe où, il est sûr que personne, parmi ce vrai peuple russe ne le livrerait aux diables rouges. Mais si le train n'avance pas beaucoup plus vite qu'un cheval au galop, Vsévo préfère attendre le nœud ferroviaire qui ne devrait plus tarder. Non seulement ce sera moins dangereux de sauter quand le train ralentira, mais en plus il pourra peut-être ensuite grimper sur un train de marchandise et rejoindre quand même la Crimée. 
+Le soleil ne se lève pas encore mais le ciel commence à rosir. Tou-tchouk, tou-tchouk, il faudrait juste que ce rythme ralentisse, et il pourrait sauter là où ces joncs amortiraient sa chute, et il pourrait courir là, dans ce bosquet, au cas ou quelqu'un le verrait. Est-ce qu'ils arrêteraient le train pour autant ? Mais la juive du samovar l'a prévenu, il a une tête d'ennemi du peuple. Il ne l'a même pas remerciée. Il s'apprête à refermer la porte lorsqu'il entend des voix qui chantent faux, des voix qui chantent fort. Au fond du couloir du wagon suivant les marins avancent en titubant. Vsévo jette son sac, qui rebondit sur le ballast et roule dans les herbes hautes. Il n'y a plus le choix maintenant, son laisser passer et son argent sont dans le sac. Il saute et se laisse rouler en boule. Ici, pas un arbre pour se cacher. S'aplatir dans les joncs. Résister à la tentation de lever la tête pour regarder si quelqu'un l'a vu sauter. Il y a une minute il espérait que le train ralentisse, maintenant, il prie pour qu'il maintienne sa vitesse, ou même, comme les battements de son sang dans les tempes, qu'il accélère. Ce rythme obsédant, ce rythme. La joue posée dans l'herbe mouillée Vsévo pense à sa mère. 
+
+---
+
+# 27_Vingt_sept Des fusils dans les vignes
+
+Vsévo marche la nuit. Le jour, il s'approche des fermes un peu isolées, des petites églises. Dans son uniforme de matelot, il ne sait pas s'il doit craindre d'être emmené au soviet le plus proche ou au contraire d'être pris pour un rouge par des paysans qui ont peur qu'on réquisitionne leur terre. La méfiance est réciproque. Malgré la paix infamante, on n'a pas encore démobilisé et la fin de la guerre n'empêche pas certains soldats de déserter. Ils arrivent par bande, terrorisent un village, boivent, se servent, obligent les musiciens à jouer et les filles à danser, ils rient, boivent encore, ils pleurent et et dorment chacun leur tout, ayant gardé du front l'habitude des gardes. Mais dans les villages, c'est encore l'attentisme. Est-ce qu'on va vraiment redistribuer la terre ? Mais est-ce qu'on va brûler les églises ? 
+
+Quand Vsévo arrive à Staryï Krym, il s'assied au fond du jardin et regarde la faible lumière derrière les fenêtres. Comment s'assurer que c'est bien son père et sa femme Tatiana qui dorment là ? Il vaut mieux attendre le matin, et voir sans se faire voir. Mais avant même le lever du soleil, il est réveillé par le contact froid du canon d'une arme contre sa nuque et un murmure glaçant : " montre tes mains, doucement, voilà, retourne toi, lentement..."
+Vsévo, en s'exécutant essaie de deviner à qui il a à faire, mais le ciel rougissant de l'aube ne révèle qu'une silhouette massive. Impossible de fuir. Attaquer, peut-être ? Même pas, à genou, impossible de prendre appui, de sauter vers l'adversaire. La silhouette menaçante se décale et pousse un cri "Bojie Moï, Mon Dieu, Vsévo ! Avec ton uniforme, je t'ai pris pour un déserteur de Sebastopol, mon fils !"
+Ils se serrent, se regardent, se serrent à nouveau dans les bras. 
+
+L'euphorie est de courte durée. Dans la maison, il n'y a presque pas de meubles. Tatiana, les a fait stocker quand ils étaient au front, pour éviter les pillages que les bolcheviks appellent des réquisitions. L'ironie de l'histoire c'est qu'elle les a envoyés à la maison Ipatieff, où le tsar et sa famille sont maintenant séquestrés. 
+La maison des étés dorés de l'enfance s'est transformée en caserne. Valéry l'ingénieur a laissé la place au colonel Gousseff qui impose une discipline militaire. Lever, prière, gymnastique briefing répartition des tâches. Au moins, le soir, on retrouve l'ambiance d'une famille bourgeoise, Valéry peint, son invité joue de la guitare, Tatiana lit. C'est elle qui assure l'intendance. 
+- Tu as raté ton frère alexeï, il es reparti à Sébastopol aujourd'hui. 
+Alexeï, le fils de Tatiana et de son premier mari. Ils ont à peu près le même âge mais ne se ressemblent pas. Autant Vsévo est sérieux et tourmenté, autant Alexeï est bavard et vantard. 
+Valéry reçoit discrètement d'autres officiers. Ils posent des calques sur des cartes avec des murmures de conspirateurs, et Vsévo, évidemment récupère les corvées civiles du domaine. 
+Il doit entourer le domaine d'une clôture de fil de fer. Comme si ça pouvait empêcher les villageois de s'emparer du vignoble si le soviet local les y autorisait. Et Ioufan, est-ce qu'il nous voit comme des ennemis, maintenant ? Un mois que Vsévo est là et il ne l'a toujours pas vu au domaine. Tiens, ce ne serait pas lui, qu'on aperçoit au bas de la colline ? Non, ces silhouettes sont plus jeunes. Bon sang, mais ils se planquent ! Ils montent la colline, ils viennent vers la maison. 
+Courbé entre deux rangs de vigne, Vsévo court jusqu'à la maison. Au regard sévère que lui décoche son père quand il fait irruption dans le salon, il répond par un salut militaire et une phrase débitée entre deux halètements : "individus suspects à l'approche, six à huit, dont deux ou trois apparemment armés, en progression rapide dans le bas du vignoble."
+Valéry fait un geste qui signifie "c'est bon", puis il referme la carte dépliée sur l'unique table qui n'a pas été envoyée à la maison Ipatiev. Il sort deux fusils d'une horloge, le militaire avec qui il parlait tend la main :
+- Non, dit Valéry, toi tu rejoins ton régiment, tu transmets ce qu'on a convenu.
+
+Il laisse à Tatiana un des fusils, tend l'autre à Vsévo et se contente de son pistolet. 
+
+Du haut du vignoble, on aperçoit cinq jeunes hommes qui remontent la colline en longeant la vigne, ne se cachant même plus. On entend même des rires. Malgré sa silhouette imposante, Valéry avance rapidement et silencieusement. Il rampe pour traverser un an à un les rangs de vigne puis il s'immobilise, désormais invisible. Vsévo, lui, est allongé dans l'herbe. Il rampe doucement mais le fossé l'empêche de s'approcher plus près du chemin. On est loin des exercices de l'Académie. Il est immobile mais tout s'accélère, son cœur, sa respiration, le mouvement de ses yeux. Et puis c'est la dissociation. Tout n'est qu'information à traiter. L'ennemi qui avance, ignorant leur présence, pourtant trahie par le bruit de son père, plus bas, ils vont bientôt le dépasser. Le bruit du cœur, mais il faut écouter au-delà car Valéry a dit : " Au signal, tu tires en l'air, et s'ils ne tirent pas vers toi,   tu cours de l'autre côté du chemin et tu tires à nouveau." Au signal, mais quel signal ? Mais Valéry rampait déjà. 
+Une détonation, Vsévo se lève, non, tirer d'abord, il se courbe, tire, une troisième détonation lui répond, plus bas, il traverse le chemin, il tire à nouveau s'agenouille et la voix de son père retentit : 
+- Jetez les fusils ou mourrez !" et une détonation de plus. 
+- Ladna, Ladna, c'est bon" et le bruit des armes sur le sol. 
+Vsévo se lève et tient le groupe en joue. Des déserteurs, blouses de paysans sur pantalon d'uniforme, des visages creusés qui montrent plus d'ennui que de peur. Ils échangent des regards vexés d'avoir été désarmés par deux hommes seulement, même pas, un homme et un gamin. Pourtant, il y a deux ou trois ans, eux-aussi étaient des gamins. Est-ce qu'ils se rappellent de la première fois qu'ils ont dû tirer sur un homme ? La répugnance inattendue à abattre un semblable . En tout cas, sans se concerter ils font le pari que Vsévo ne tirera pas et ils détalent courbés entre deux rangs de vigne. 
+Après la surprise, Vsévo court, tente de viser mais son père lui dit : 
+- Laisse, laisse... Regarde ce qu'on va faire.... S'ils ont du culot, ils iront se plaindre au soviet paysan de Feodosia, et si on est perquisitionnés, il ne faut pas qu'ils retrouvent les fusils."
+Valéry s'approche de la bobine de fil de fer laissée par Vsévo, il s'avance dans les vignes et choisit un poteau assez haut pour y attacher un des fusils des déserteurs. Vsévo l'imite quelques mètres plus loin. 
+- Si on doit fuir en urgence, on ne sera jamais désarmés. 
+Dans la même phrase, le danger et la riposte, le poison et l'antidote. 
+Le lendemain Valéry envoie sa femme Tatiana à Staryï Krym, afin que le notaire authentifie l'attestation qu'il vient de rédiger pour autoriser son fils à porter une arme. Il y a quelque chose de dérisoire, presque pathétique, dans cette volonté de respecter le formalisme le plus strict. Dès le départ de la Révolution, les massacres d'officiers ont montré combien les Rouges se soucient du droit, et maintenant que la guerre civile a commencé...
+Peut-être, simplement, est-ce aussi un moyen de passer quelques heures seul avec son fils, et ne pas déranger sa femme en demandant des nouvelles de celle qu'elle a remplacée : 
+- Alors, dis-moi, Vsévo, comment elles vont, à Petrograd, ta mère et ta sœur ?
+
+
+
+
+---
+
+# 28_Ving_huit Invisibilisee
+
+What the... quoi ?
+Qu'est-ce que c'est que cette histoire de sœur ? J'ai bossé des années sur ces archives, j'ai jamais vu passer une sœur. 
+J'ai déchiffré tout ce que j'ai pu, interrogé mon père, mon oncle, ma tante, des cousins, des amis, personne ne m'a jamais parlé d'une sœur !
+
+
+---
+
+# 29_Vingt_neuf famille un point doc
+
+Nous n'avons pas connu la guerre, nous n'avons pas connu les trente glorieuses. Nous n'avons pas vécu la révolution sexuelle et nous avons découvert l'amour quand le SIDA sonnait la fin de la récréation. Nous n'avons pas connu le plein emploi et nous avons vu nos pères découvrir le chômage comme une punition arbitraire, une négation de leur identité : se tuer au travail, c'était leur manière de mourir pour la patrie, de se montrer valeureux pour le clan. 
+Nous étions trop jeunes, dans les années quatre-vingt pour vivre cette ivresse idiote et fluorescente du bling à la Bernard Tapie, quand l'argent roi était désirable au point de nous faire croire que Paul-Lou Sulitzer était un écrivain. Sans avoir été invités pour la cuite, nous avons commencé notre vie active en pleine gueule de bois. 
+Notre maison brûle et nous regardons... les offres d'emploi sur le site de l'APEC. 
+Nous avons éclos après la décolonisation, après la guerre froide, et l'absence de péril imminent nous a privés d'occasions de gloire indiscutable. Ne pas avoir frôlé la mort nous a privés d'absolution et nous avons porté comme une seconde peau une culpabilité diffuse, mais épaisse, comme un brouillard. 
+Ce n'est pas l'héroïsme guerrier qui nous a permis d'en sortir, mais cette sentence de Camus : 
+*"Un homme, ça s'empêche... Voilà ce que c'est, un Homme, ou sinon..."*
+On s'est restreints, et le plus souvent, on a bien fait. On a cessé d'empêcher des gens qui s'aiment de se marier, on a cessé de fumer dans les trains, dans les bars, on a décidé de partager le travail, de partager une monnaie avec nos voisins. Comme un torrent qui rencontre la plaine, nous sommes passés de la turbulence à un écoulement laminaire. Mais comme le torrent qui rencontre la plaine, nous sommes passés de l'évidence raide de la pente aux méandres du faux-plat, sans cesse sommés de contourner des injonctions paradoxales. Il faut gagner sa vie, mais pas devenir un sociopathe capitaliste, il faut innover, produire, mais préserver l'environnement, il faut investir, s'investir et être à la sortie de l'école pour prendre nos enfants dans nos bras. 
+
+Ou alors, je raconte tout ça pour justifier une carrière chaotique, une errance professionnelle qui m'amène, à presque cinquante ans, un âge que Vsevo n'a jamais atteint, à passer encore des entretiens d'embauche ou des concours de la fonction publique. 
+J'étais ce matin chez ma mère, prêt à partir au siège du centre national de la recherche scientifique pour les convaincre de m'embaucher au grade d'ingénieur débutant, et j'avais, bien entendu, oublié la clé USB qui contenant ma présentation. 
+
+- Mais tu as bien une sauvegarde quelque part ? Sur ton google ? dit ma mère. Je vais te chercher une clé USB.
+
+Elle est revenue avec un petit étui en tissu qui contenaient des plugs de connexion pour souris sans fil, des adaptateurs wifi et une clé USB. 
+Je l'ai branchée pour y copier ma présentation et le nom d'un répertoire a attiré mon attention. Parmi les inévitables "nouveau dossier", "nouveau dossier (1)",  "photos vacances maman" il y avait un répertoire nommé "Bitolj". 
+Il contenait des images et un fichier texte. Dès la première image j'ai reconnu la façon de peindre de Valéry Iakovlevitch Gousseff, arrière-grand-père dont je ne savais rien, sinon que son exil ne l'avait pas amené en France mais en Yougoslavie, qui s'appelait alors le royaume des Serbes, des Slovènes et des Croates. Sur les murs de notre salon il y avait quelques uns de ces tous petits tableaux, avec des ciels bleu et rose. 
+Pourtant, j'ai hésité à faire le lien, comme si un excès d'optimisme risquait de modifier le contenu du fichier le plus important : "famille1.doc". 
+Je l'ai ouvert : quinze pages, entre la généalogie détaillée et la biographie condensée. 
+La famille du grand-père Gousseff, et la famille Sokoloff, celle de ma grand-mère russe. 
+Et au milieu d'une page, Nadejda Valerievna Gousseva, la sœur de mon grand-père dont je n'avais jamais entendu parler. 
+Mais de qui avais-je entendu parler ? Mon père était mort depuis 10 ans, et pendant les dix années précédant sa mort, toutes mes tentatives de parler de notre histoire avaient abouti à des impasses. 
+J'ai regardé les métadonnées du fichier. Auteur : CNRS, de la société CNRS. Sur le coup, je n'ai pas remarqué la coïncidence avec l'oral de concours qui m'attendait. Non, c'était juste une piste : ma cousine travaillait au CNRS, depuis des décennies. Elle avait pris nos origines à bras le corps, et en avait fait son métier. Elle avait publié des livres sur l'exil russe, sur les déplacements de population sous Staline, publié des lettres d'écoliers déplacés pendant la Révolution. Mais le texte ne pouvait pas être d'elle, il ne pouvait avoir été écrit que par son père, mon oncle Lala. 
+Comment ce texte n'était-il jamais parvenu jusqu'à moi malgré mes demandes incessantes ? Probablement à cause de mes demandes incessantes. 
+
+
+---
+
+# 30_trente La campagne de glace
+
+Comme le langage n'est pas le réel l'Histoire n'est pas le passé. La mémoire de ceux qui racontent retient ce qu'elle peut, ce qu'elle veut et les documents historiques sont comme des clous sur une porte capitonnée, des éléments ponctuels où l'on peut espérer que le réel et le récit coïncident. Comme cet autre document notarié, daté d'octobre 1918 : Valéry autorise son fils à s'engager dans "l'armée russe", levée par les généraux Alexeev et Korniloff. Vsévo a 16 ans et il retrouve l'armée des Volontaires dans le Kouban, à l'est de la Crimée. 
+À Novorossisk, ce ne sont pas les allemands mais les Anglais qui sont présents. Ils apportent aux Volontaires un soutien logistique, et leur vendent notamment leurs surplus d'uniformes. Quand on les distribue, Vsévo retrouve Stoliaroff. Ils avaient rêvé de batailles rangées, de coups de canon tirés depuis de puissants destroyers, du prestige des épaulettes dorées de leurs pères, et on leur fournissait des uniformes des uniformes de toile kaki.
+- Regarde ça, dit Vsévo. À part la couleur, on dirait les bleus de chauffe des Gardes Rouges de l'usine Poutiloff. 
+- Parle moins fort, dit Stoliaroff, il faut que je t'explique. 
+Micha Stoliaroff est arrivé avec quelques mois d'avance sur Vsévo. Il les a vus arriver, lui, les volontaires en retraite de la première campagne du Kouban. 
+
+" Ils ont appelé ça la campagne de glace. Ils ne parlent pas beaucoup, mais quand ils racontent la bataille d'Ekaterinodar, tu peux sentir le froid jusque dans tes os. Jamais un mois de mars n'aura été aussi froid. On raconte que le général Markoff descendait en personne fouetter les soldats avec sa nagaïka cosaque. Pas pour les punir, mais pour les empêcher de se laisser mourir sur la glace. 
+À Ekaterinodar, ils ont dû traverser la rivière à gué. De l'autre côté, ils n'avaient rien d'autre que leurs baïonnettes pour attaquer les Rouges. Tu te rappelles les aspirants d'infanterie avec qui on a défendu le Palais d'Hiver ? Je ne sais même pas s'il en reste un seul de vivant. On raconte que Korniloff aurait dit " les pauvres petits,", quand ils fondaient dans la fournaise. On peut raconter ce qu'on veut, de tout façon, parce que Korniloff, il est mort. Il a pris un éclat d'obus. Ils l'ont enterré, et les rouges l'ont déterré quand ils ont repris du terrain, les chiens ne respectent rien. 
+La nuit, pour ne pas que les blessé meurent de froid, ils les glissaient sous les meules de foin. Mais les rouges ont réussi à incendier les meules.  Tu imagines, les hurlements des blessés, coincés sous les feux de paille ? Eh ben écouter un gaillard du régiment d'assaut Korniloff te raconter ça, dans son uniforme rouge et noir, mais avec les larmes aux yeux, ça fait..., ça fait..." 
+
+Pour Vsévo, la guerre civile vient de devenir réalité. Après un long silence Stoliaroff reprend. 
+
+" Je suis arrivé quand les Allemands ont occupé l'Ukraine. C'est triste à dire, mais c'est eux qui ont fait reculer les Rouges. C'était l'ordre au prix de la honte. Alors tu vois, ces uniformes kakis, là, qui nous disent que la guerre, c'est un boulot comme un autre, ça me rappelle ce que me disait l'officier qui nous a convoyés jusqu'ici, en parlant des Allemands qui chassaient les bolcheviques : le cœur a mal, mais la peau se réjouit."
+
+À Novorossisk, l'armée des volontaires devient véritablement une armée. Stoliaroff et Vsévo attendent de recevoir une affectation pour la campagne qui reprend. 
+- Dis-donc, demande l'officier qui s'en occupe, Gousseff, Vsévolod Valerievitch, t'es le fils du Valery Gousseff, qui construisait des gares ?
+- Oui, mais il est maintenant colonel du génie donc...
+- Oui, bon, n'empêche, tu partiras avec le train blindé, on va t'affecter au Dimitri Donskoï. Un nom pareil, ça va te porter bonheur et protection ! 
+Vsévo ne sait pas s'il parle du nom de son père ou de celui du train, qui fait référence à un grand-prince de Moscou du quatorzième siècle. De toute façon, plutôt qu'un nom, ce sont surtout les plaques de tôle vissées aux châssis des wagons qui vont le protéger. Il a un peu honte, parce qu'il sait que même s'il sera en première ligne, d'autres, derrière, arriveront à pied, à cheval, ou dans des trains ordinaires encore plus vulnérables. 
+Encore une fois : le cœur a mal, mais la peau se réjouit. 
+
+
+
+---
+
+# 31_Trente_et_un Mais la peau s est rejouie trop vite
+
+Mais la peau s'est réjouie trop vite de ce train blindé. Tu parles d'un blindage, des tôles fines comme du papier à cigarette, tu parles d'un train, un wagon, une locomotive, un wagon. 
+- Pourquoi ils ont mis un wagon devant ? Il n'a pas de blindage, il n'a même pas de murs, on ne va pas grimper sur cette plateforme, quand-même ?, dit Stoliaroff.
+- À mon avis, Misha, dit Vsévo, c'est un wagon martyr. Si les Rouges ont miné la voie, c'est lui qui sautera, pas la locomotive. 
+- T'es un malin, Cadet !, dit un officier derrière eux.
+- Pardon, mon lieutenant, on ne vous avais pas vu, dit Stoliaroff. 
+Ils font un salut réglementaire. 
+- Mon père est ingénieur, il a construit des gares, alors il s'intéresse aux trains, dit Vsévo. 
+- Donc tu sais comment marche une loco ? demande l'officier. 
+- En théorie, je sais comment ça marche, en pratique, je ne saurais pas la faire marcher. 
+- C'est pas grave, t'apprendras. Vous vous connaissez d'avant la conscription, vous deux ? 
+- Nous étions ensemble dans le corps des Cadets de la Marine, mais je viens seulement d'arriver, Stoliaroff, lui...
+- Je suis là depuis l'été. 
+- Bien, il faut deux gars qui se comprennent pour bien gérer la chauffe, la vapeur, la vitesse. 
+Le lieutenant se tait. De toute façon, il ne va pas mettre ces gamins sur le wagon arrière, servants de mitrailleuse. À la première échauffourée, il n'aura plus ni mitrailleuse ni servants. Peut-être plus tard, quand on aura récupéré les canons de marine qu'on nous promet depuis Sébastopol. Et puis si le renseignement est bon, demain, on aura peut-être un train  de plus, il suffit qu'on arrive à temps. 
+Et le lendemain on a un train de plus. 
+Il y a des centaines de kilomètres de voie unique, et seulement, de temps en temps, une dérivation, un refuge, pour permettre à deux trains de se croiser, parfois une boucle pour faire demi-tour. 
+Des éclaireurs de cavalerie y ont repéré un train Rouge qui doit sûrement attendre un ordre pour attaquer. 
+L'ordre, le lieutenant Ogloblensky a su le provoquer, lui, presque l'exiger, de cet état major si lent à la détente. Il faut agir maintenant. 
+Dans une guerre ordinaire, bloc contre bloc, il y a un front, gluant, une limace interminable qui se déplace lentement, comme retenue par les tranchées qu'on a mis si longtemps à creuser. Le train blindé est comme un pur-sang qu'on aurait mis à la charrue. Il transporte ces messieurs de l'état major, on le charge de troufions d'infanterie qu'on amène de l'arrière au front, ou l'inverse, et les locomotives rongent leur frein, mais quoi, mais bon, quand rien ne bouge à quoi bon courir vite, puisqu'on ne peut courir qu'en crabe, si par miracle la ligne de chemin de fer épouse la ligne de front, ou courir en arrière, vers la périphérie. 
+Mais dans la guerre civile, la périphérie n'est nulle part et le centre est partout. Qui peut dire où est la ligne de front ? Vsévo et Misha regardent le chauffeur faire chauffer la chaudière, ils regardent comment  se conduit le conducteur et  comment il conduit, concentrés sur les gestes, les jauges, sourds aux conseils hurlés par leurs aînés couverts par le vacarme. 
+Et puis ce qui était mystérieux devient familier. On atteint la vitesse de croisière. Tchouk-tchouk tchouk-tchouk. Quelle machine, quand même. Autour, la plaine est blanche, parfois des champs, parfois des bois où les bouleaux et les résineux semblent se serrer pour empêcher le froid de traverser les lisières. Les reflets du soleil sur le givre font de l'or : on oublierait la guerre. Mais la guerre ne vous oublie pas. Après une grande courbe vers le nord, la forêt disparaît brutalement et l'aiguillage est là. Sur le côté, le train Rouge qui attend un ordre qui ne viendra plus à temps. Il faut passer. Passer avant que ces cochons de bolchévistes reprennent leurs esprits et actionnent l'aiguillage et précipite notre train sur le leur. 
+La tension qu'on avait cessé de ressentir n'était jamais partie. Vsévo sent sur son épaule la main crispée de Stoliaroff. Le bruit des balles sur le blindage ressemble au bruit de la grêle sur le toit d'une isba : le bruit du danger, de la mort imminente. Et pour Vsévo, c'est le signal de la dissociation. Quand on se met à tirer, Stoliaroff resserre un peu plus sa main sur l'épaule de son camarade, ses doigts semblent traverser l'uniforme jusqu'à la clavicule  crispée de Vsévo, qui regarde calmement les servants et la mitrailleuse. Il la détaille alors qu'elle expulse des douilles dans toutes les directions. Si on voit sauter des douilles, c'est que des balles partent ! Incroyable, quand on y pense, qu'elles aillent si vite que l'œil ne peut les voir. Pourtant, aucun doute, les soldats qui couraient vers le poste d'aiguillage, courbés comme si cela pouvait suffire, voilà qu'ils tombent en avant, un par un, comme si leur tête était devenue trop lourde et les entraînait vers le sol. Une autre vague s'élance, mais c'est trop tard, le wagon que pousse la locomotive s'est déjà engagé au-delà de l'aiguillage. 
+Pour les Rouges, la retraite est coupée, et pour les Volontaires, il faut tenir. Normalement, un autre train suit, sans blindage mais avec des renforts d'infanterie, et même un wagon à bestiaux pour de la cavalerie. Il faut passer le refuge et freiner, mais dans les wagons du train rouge qu'on dépasse, la sidération se dissipe, on actionne un canon. Aïe, c'est du 76, ça va faire mal. Est-ce qu'on est assez près pour que la mitrailleuse nettoie les artilleurs ennemis ? Tiens, elle ne ressemble pas à celle qu'on avait pour défendre le Palais d'Hiver. Ce n'est pas une Maxim, c'est sûr, peut-être une des Lewis qu'on aurait récupérée des alliés ? En tout cas, les nôtres ont su y faire, les mitrailleuses ennemies ne tirent plus. Mais faudrait ralentir, bientôt, ils seront hors de portée de mitrailleuse, et nous, toujours à portée de canon. Et puis il ne faudrait pas s'avancer en territoire ennemi, se jeter dans la gueule du loup rouge, pourquoi est-ce qu'il ne freine pas, ce...
+Vsévo se retourne. Dans la locomotive, le chauffeur se tient à sa pelle à charbon, éventré, debout mais mort. Stoliaroff est allongé au sol. 
+- Micha, Micha, lui crie Vsévo. 
+Stoliaroff relève la tête, il n'a pas l'air trop mort alors Vsévo s'avance. Il actionne le frein. "The real McCoy." La phrase lui revient, son père lui parlant des systèmes de lubrification des locos américaines. Mais là-bas, ça tire à nouveau. Le bruit des balles sur le blindage est un bruit joyeux, par-dessus le crissement déchirant que fait l'acier des roues en frottant sur les rails impassibles. Et pourtant on ne freine pas assez vite. Déjà, les servants délaissent la mitrailleuse, ils se baissent. 
+ BRAOUM. 
+ Les salauds, il en reste, et leur canon n'est pas fichu. Et à nouveau des salves de mitrailleuse. Ah, cette fois, ça sonne comme une Maxim, ce sont les nôtres, ceux qui suivaient. Tiens, le hurlement des roues sur les rails devient moins strident et comme une baleine folle qui a nagé de toutes ses forces vers la grève, la locomotive s'échoue au milieu de la plaine. 
+ les junkers, leurs aînés d'à peine un ou deux ans, viennent enlever le corps du chauffeur. Ils l'allongent sur le wagon martyr, à côté de deux autres cadavres. Stoliaroff est assis, la tête entre les mains. Le lieutenant Oglobliansky lui parle. Vsévo regarde sa bouche, il sent sa main sur son épaule, juste là où Micha avait enfoncé ses doigts tout à l'heure. Tout le monde s'intéresse à cette épaule, on dirait. On dirait aussi que le lieutenant le félicite. C'est vrai, Vsévo trouve lui aussi qu'il a su relâcher la pression de la locomotive, ouvrir la porte de la chaudière et actionner le frein, pour une première, ce sont de bons réflexes. Mais Oglobianski parle de fierté, de courage, et qui dit courage dit danger, dit peur et soudain Vsévo sent lui monter des larmes, des spasmes. La peur était là, immense, toute la journée peut-être, et il n'avait pas conscience de sa présence, de son existence. Il ne veut pas flancher, pas pleurer là, devant son lieutenant, ce n'est pas parce qu'ils sont les plus jeunes que Micha et lui...
+ D'ailleurs Stoliaroff s'est levé, il s'approche. Ah, non, il approche encore sa main levée, mais qu'est-ce qu'ils ont avec cette épaule. Pour l'éviter, il le prend dans ses bras, et au loin, derrière, ça tire encore un peu. C'est l'occasion de se retourner et de gueuler : " Allez, finissez-nous ces salauds-là !"
+ Bon, la voix est bien trop serrée, encore. Et comme on voudrait qu'elle soit moins aiguë ! Mais au moins, on gueule. Au moins, la peur se transforme en haine contre celui qui l'a fait naître, celui qui a blessé les nôtres, qui a tué nos frères, et peu importe que nous ayons été les assaillants, peu importe que nous ayons tiré les premiers, tout ce qui importe, c'est que nous ayons transmuté la peur en cette soif de vengeance sans laquelle la guerre et le meurtre ne seraient tout bonnement pas possibles. 
+ 
+
+---
+
+# 32_Trente_deux Essence d un pont
+
+Ce matin, un missile hypersonique intercontinental s'est abattu sur Dnipro. Nous nous sommes habitués à entendre le décompte des morts civils, femmes, enfants. Les images d'écoles détruites et d'hôpitaux en ruine ne nous émeuvent déjà plus autant. C'est tellement banal que les journaux télévisés ont cessé d'en parler. 
+Mais là,  il y a de la nouveauté technologique, alors on en parle : une nouvelle arme balistique, et tant pis si personne ne comprend vraiment la différence avec les précédents missiles. Paris à deux minutes de n'importe quel pas de tir poutinien. J'ai consulté quelques sources et mes troubles de l'attention m'ont fait sauter de lien en lien jusqu'à la page Wikipédia de Dnipro. Anciennement Dniepropetrovsk. Plus anciennement encore, Ekaterinoslav. Ekaterinoslav : le pont ! Le pont de la légende familiale. Peut-être le seul élément dont m'ait parlé mon père. 
+
+
+---
+
+# 33_Trente_trois La guerre est presque belle
+
+La guerre est presque belle quand on est victorieux. La contre offensive-blanche démarre avec des succès inattendus. Déjà, on traverse le Don en direction de l'Ouest. Comme toujours, Vsévo apprend vite : il peut maintenant occuper n'importe quel poste sur n'importe quel train. Mais le plus souvent Stoliaroff et lui sont affectés à la locomotive. Stoliaroff a une vue perçante, et une capacité stupéfiante à repérer une verste à l'avance le moindre mouvement suspect. Vsévo, lui, sent la machine comme un cavalier sent sa monture, vivante, capricieuse et docile à la fois. En revanche, quand il regarde les rails, il ne peut maintenir sa vigilance plus de quelques minutes d'affilée, absorbé par le défilement des traverses et des poteaux télégraphiques, l'éclat régulier des rails, le rythme des pistons. 
+Une seule voie, une seule direction, comme la vie. Un peu plus vite, un peu plus lentement, mais aucune question à se poser, pas de carrefour, de choix cornélien. Même quand il y a un aiguillage, celui qui choisit est dehors, on ralentit un peu, mais d'autres décident, et on avance. 
+À mesure qu'on avance vers l'ouest, pourtant, la situation est de plus en plus confuse. On ne sait pas toujours qui on va rencontrer. Amis, ennemis, Russes ou étrangers ? On se rassure en se disant que l'état-major doit savoir. On dit que derrière nous, à Novorossisk, ce sont les Anglais. Ont dit qu'à Odessa, les troupes Françaises sont avec nous. 
+
+*Les Allemands, ils sont encore à Kiev ? L'Hetman Skoropoadski, c'est lui qui est au pouvoir ? C'est un cosaque, non ? On va pouvoir s'entendre avec lui. Mais non, c'est fini, c'est Petlioura, maintenant. Qui ? Petourra ? Petlioura, je te dis. C'est un nationaliste. Il dit qu'il n'y a pas de Petits-Russes, seulement des Ukrainiens. Il ne veut même plus qu'on parle Russe à Kiev, à ce qui se dit. Attends, Petlioura, c'était pas un de ces bandits qui se battent contre tout le monde, un de ces Verts comme il paraît qu'il y en a jusque dans le Kouban ?  Ecoute, c'est peut-être un vert, mais ce n'est plus juste des bandes, ils ont fondé un directoire, paraît-il. Un directoire ? Ouais, comme les Français après la Révolution. Mais alors, ils sont pour on contre la Révolution ? Personne ne sait, il paraît qu'ils nous en veulent, mais ils se foutent aussi sur la gueule avec les bolcheviques.*
+
+Le train est un village qui se déplace. Les postes télégraphiques propagent  depuis l'arrière les instructions de l'état-major, et depuis l'avant, les renseignements quand il y en a. Chaque arrêt apporte donc son lot de rumeurs, de nouvelles, bonnes, mauvaises, le plus souvent fausses. 
+Parfois, on dort dans un vrai lit, plus rarement on se lave à l'eau chaude. Quand on s'arrête assez longtemps, il arrive même qu'on se repose. Mais même se reposer est dangereux. 
+Ogloblionski les a installés par campements de dix ou douze dans un rayon d'une verste autour de la gare. Ce n'est pas tant les Rouges qu'on redoute que les paysans, qui sont de plus en plus hostiles. Évidemment, ils voient d'un mauvais œil les réquisitions, mais quoi, on va crever pour eux, ils peuvent bien nourrir la troupe, oui ou merde ?
+Entre le Don et le Dniepr, on dit qu'ils égorgent toute la soldatesque, quelle que soit sa couleur. Le soldat, c'est celui qui prend le grain et qui prendra la terre demain. 
+On allume un feu, on désigne des sentinelles, des tours de garde, on fait bouillir de l'eau. Stoliaroff sait sur quelles fougères il faut tirer : leurs racines font une tisane amère au gout de réglisse, ce qu'il y a de moins pire quand on n'a plus de thé. 
+On s'allonge autour du feu. 
+Alors qu'on devrait parler plus que sur le train, où il faut hurler pour se faire entendre, la fatigue impose le silence. La peur, aussi. On cherche à distinguer, parmi les bruits de la forêt, les pas d'éventuels assaillants. Mais malgré la tension, ceux qui ne sont pas de garde s'endorment. 
+Stoliaroff s'allonge, les pieds vers le feu de camp. C'est toujours les pieds qui s'abîment, à la guerre. C'est l'été, les nuits sont chaudes, mais rien n'effacera le manque de bottes de cuir pendant l'hiver dernier : ils sont nombreux à avoir perdu des orteils pendant la campagne de glace. Certains continuent à négocier des bottes de laine feutrée quand ils croisent des villageois. D'autres ont des souliers civils. La hantise, ce sont les sandales d'écorce de tilleul, les chaussures du dernier recours. Alors, même s'il fait chaud, on se couche les pieds vers le feu. Mais quand Stoliaroff s'apprête à s'endormir, Vsévo le secoue. 
+- Tu sais ce que dit mon père, Micha. Toujours le fusil vers l'ennemi. 
+- Tu m'emmerdes avec ça toutes les nuits, tu crois vraiment que ça change quelque chose, avec les sentinelles, les tours de garde ? 
+ 
+Cette nuit là, oui, ça change quelque chose. Le feu est éteint et d'abord Stoliaroff pense que c'est le froid qui l'a réveillé, mais il fait trop doux. Alors a-t-il été reveillé par le cri d'une chouette, qu'il entend à nouveau ? D'un côté, puis de l'autre. Mais maintenant qu'il est tout à fait sorti du sommeil, il entend des pas, et peut-être des chuchotements. Un coup de coude à Vsévo puis,  sans quitter des yeux le bord invisible de la clairière, il murmure à son oreille : "encerclement."
+Les pas sont tout proches. Le soleil n'est pas levé, mais ce n'est plus tout à fait la nuit. 
+Les junkers dorment. L'adjudant dort. Les bruits forment un nœud coulant qui se resserre autour du campement. On entend un âne braire. Vsévo et Stoliaroff arment leur fusil aussi silencieusement que possible. Bouger ? Ramper ? Tirer ? Et après ? impossible de fuir ! Courir c'est se jeter vers un ennemi dont on ne connaît ni le nombre ni les armes. Il faut attendre. Il faudrait réveiller les junkers. Mais s'ils crient ? S'il paniquent ? 
+Soudain les autres attaquent. Pensant encore bénéficier de l'effet de surprise. ils courent entre les bouleaux et les pins. Malgré la peur Vsévo prend le temps de viser. Deux corps s'effondrent, Micha a tiré en même temps. Ensemble, il s'élancent tout droit, s'éloignent du feu, rechargent se retournent, ils tirent à nouveau. Derrière eux des cris et l'odeur de la poudre, des bruits de course, deux junkers les rattrapent, les poussent, on s'échappe, impossible de savoir si les assaillants les poursuivent ou s'enfuient eux aussi. 
+Un fossé, on s'allonge dans l'eau, ah, la respiration, qu'est-ce qu'on fait comme bruit. À quelques mètres, plouf, plouf. On rampe, on se reconnaît, on se rejoint. D'en haut quelqu'un gueule : " Ils ont leur compte, filons avant qu'il en vienne de la gare."
+Ça parle Russe, mais les G ressemblent à des H aspirés, comme on les prononce en Ukraine et au sud de la Russie. Quelques mots de sourjyk, ce patois où se mêlent du russe et des mots d'ukrainiens. Le lendemain, ils auront disparu. Grimés en paysans dans les fermes. Ou partis sur des chevaux frais qu'ils épuiseront et échangeront dans une ferme à cent verstes. Pas des militaires, pas des civils, pas des bolchéviques, pas des nationalistes, des "noirs", l'expression têtue de la révolte paysanne. 
+Les coups de feu ont alerté le reste du régiment qui vient à la rescousse. Aucun autre campement n'a subi de pertes. L'adjudant et deux junkers sont morts. Quand on rejoint la gare, on comprend que c'était une diversion, des munitions ont disparu. 
+- Des Makhnovistes, dit le lieutenant Ogloblionski. Heureusement qu'ils n'ont pas d'autre approvisionnement en munitions que celles qu'ils nous prennent, parce qu'ils connaissent autrement mieux le terrain que les bolcheviques. 
+Mais les nouvelles de l'état-major sont bonnes. Tout est en place pour la prochaine offensive. Il y a un nœud ferroviaire à Ekaterinoslav, un des derniers verrous que Dénikine veut faire sauter avant de lancer la contre-offensive vers Moscou. Le télégraphe est formel : il y aura du charbon et de l'eau à chaque gare. 
+D'ailleurs, on ravitaille à plein. 
+- Avec ça, vous avez assez de charbon pour remonter jusqu'à Moscou, plaisante le chef de gare. Et même à Petrograd. 
+Vsévo frissonne. Comme ils sont discrets, les G du chef de gare. Presque des H, comme hier dans la nuit. 
+
+
+---
+
+# 34_Trente_quatre nom de train  le train
+
+Cette fois-ci, on a du renseignement, pas comme à Sviajsk, où on avait laissé s'échapper Trotsky et son train par manque d'information, et qu'on a combattu comme des chiens pour prendre le pont sur la Volga. 
+Là, personne ne sait d'où vient l'information, mais tout le monde le répète : la voie est libre jusqu'au pont qui traverse le Dniepr. 
+La seule inconnue, c'est le pont lui-même. S'ils ont stationné un train  sur le pont, on ne pourra pas traverser le Dniepr. D'autant que le lieutenant Ogloblionsky dit qu'en cas de collision, on n'aura aucune chance. Les Rouges ont de vrais trains blindés, eux, pas des locomotives sur lesquelles on a vissé des planches, ou de la tôle fine comme une chemise de soie. Leurs wagons ne sont pas protégés par de simples sacs de sable. Et en termes de poids, ils nous arrêteraient net sans subir de dégâts. Ils ont des trains comme l'Invincible, un des nôtres, mais qui roule plus au Sud. 
+Au moins, on a récupéré des canons de marine, et celui qu'on a monté sur le troisième wagon peut enfin pivoter dans toutes les directions.
+Avant même que l'ordre de l'état-major soit donné, on sent l'agitation, on sait, cette fois, que ce sera une bataille. On ne distingue pas bien l’excitation de la peur, l'appréhension de l'envie de combattre. Quand l'ordre tombe, il déçoit tout le monde. 
+" Avancer jusqu'à deux verstes du pont, couper la vapeur et ne pas s'approcher sans avoir eu confirmation de la situation."
+Ogloblianski fulmine. On l'entend gueuler dans un téléphone de campagne. 
+" C'est encore un autre colonel ? Qu'est ce qu'ils foutent, à l'état-major, ils prennent des vacances ? Ils vont se reposer en Crimée parce que ça les fatigue qu'on gagne du terrain ? "
+Vsévo et Stoliaroff seront de locomotive. Première ligne de la première ligne. Cette fois, être derrière une mitrailleuse aurait été moins effrayant. Le ciel gris emprisonne la chaleur de l'été, et de la terre monte une brume qui empêche de voir à cent mètres. 
+Le rythme du train ne ressemble plus à une musique mais au bruit d'une pompe qui, à chaque passage de rail, ferait augmenter la pression.  Les mâchoires des soldats-cheminots se contractent, les épaules aussi, et les yeux se plissent, comme si les nerfs en se rétractant étiraient les paupières. 
+Juste derrière, les junkers fument des cigarettes, ils se bousculent pour se donner du courage. 
+- Et si le renseignement se goure ? demande Vsévo. S'ils ont un train devant le pont ? 
+- Pourquoi ils se goureraient. Ils passent leur temps à dire qu'ils ne savent rien, alors là, s'ils disent qu'ils savent... dit Micha. 
+- Mais comment ils pourraient savoir ? dit Vsévo. 
+- Ouvre, que je recharge en charbon. Voilà, c'est bon. Je sais pas, moi, l'aviation ? dit Stoliaroff. 
+- Tu parles, c'est les Français et les Anglais, qui faisaient du renseignement aérien. Mais maintenant, il paraît qu'à part nous vendre du matériel, ils ne font plus rien pour nous. Ils sont restés sur la côte. Dans les terres, ils ont peur des populations. dit Vsévo. 
+- L'espionnage, alors. Ekaterinoslav, ce n'est pas une de ces stanitsas perdues où les paysans en ont après les propriétaires terriens qu'ils nous accusent de défendre, dit Misha. 
+- Mouais. Il y a surtout plus d'ouvriers en ville que dans les campagnes. 
+- Mais il y a aussi plus de médecins, de banquiers, de spéculateurs...
+Stoliaroff laisse sa phrase en suspens. Bien-sûr, ce qu'il a voulu dire, c'est qu'il y a plus de gens qui veulent se débarrasser des soviets, des commissaires, de tous les bolchéviques. Mais Vsévo a aussi entendu ce qu'il ne peut s’empêcher de ressentir aussi : il y a plus de notables, de planqués, pour qui on se bat mais qui ne sont pas derrière un fusil, comme ils n'étaient pas au front en mille neuf cent quatorze. 
+Pour changer de sujet ils parlent du dernier train qu'on a récupéré des Rouges le mois dernier et qu'on a envoyé à l'armée des Cosaques du Don pour appuyer leur avancée sur Tsaritsine. 
+- Ce blindage, mon vieux. Tu encaisses du cinquante, ou même du soixante seize avec un truc pareil. 
+- Et le wagon, blindé jusqu'au toit, avec des meurtrières. Tu arroses l'extérieur tout en prenant le thé, depuis un truc pareil !
+- Tu arroses, tu arroses, oui et non, tu as un angle latéral merdique avec ça, tu peux viser que de bas en haut, quasiment. 
+- Ouais, ben quand tu roules, tu t'en fous. 
+- À l'arrêt en revanche, dit Misha... Pour moi, ce genre de train, quand il est à l'arrêt, tu envoies de l'infanterie un peu dégourdie et c'est bon. 
+- Et imagine la masse du truc, c'est lourd comme un cuirassé, ce truc. Combien de milles nautiques il lui faut pour s'immobiliser ? 
+Une rafale interrompt la conversation. Ça réplique, on ne ralentit pas, un avant poste, ou une bande, rien de grave. Les ordres remontent depuis le wagon arrière. 
+La vue se dégage. Devant, encore loin on peut deviner la grande courbe avant laquelle l'ordre est de ralentir. 
+- Ouvre, on recharge en charbon, dit Vsévo. 
+- Mais ils vont donner l'ordre de tout couper bientôt, dit Stoliaroff.
+- On s'en fout, de l'ordre, ouvre je te dis, on va y aller à toute vapeur !
+- On ne sait toujours pas si le pont est vraiment libre. 
+- Et alors, s'ils ont mis des gardes ou des barrières, à toute vapeur ça passe, on n'est pas sur une troïka, quand même. 
+
+Maintenant, un peu en contrebas, la ville se dessine, comme un décor peint, plat, sur lequel on ne distingue pas encore le pont. 
+
+- Mais le pont ? S'il y a un train sur le pont ?
+- Mikhaïl Iakovlevitch Stoliaroff, je t'ordonne d'ouvrir cette putain de chaudière ! Il n'y aura pas de train sur le pont !
+
+Braoum. Ça y est, les obus tombent, ils ont de l'artillerie, les salauds. Ça tire dans tous les sens. Derrière les mitrailleuses, le deuxième servant charge les bandes de munition pendant que le premier tire, courbé derrière la protection trop maigre. 
+Vsévo attire leur attention en agitant les bras et leur fait signe : "on avance !", puis, par scrupule pour leur grade, monte ses paumes vers le ciel en haussant les épaules comme pour demander : "qu'est-ce que vous en dites ?"
+Ivres d'adrénaline, ils font un oui de la tête énergique et montrent les dents. 
+- Chauffe, chauffe, Micha !
+Jamais la loco n'a tourné aussi vite. Tout vibre et tout se mélange, le bruit des balles, les cahots de la voie, les impacts d'obus. Un des servants est touché, on l'évacue vers le wagon arrière pendant qu'un autre prend sa place. C'est le lieutenant Ogloblianski lui-même. Il pointe un doigt rageur vers les deux chauffeurs pour dire qu'ils n'ont pas respecté l’ordre de s'arrêter avant, puis tombe à la renverse : on vient de percuter une première barricade faite de poutres et de traverses. 
+Un rail est tombé du wagon martyr devant la locomotive, il frotte contre la voie, s'il se coince... Il se coince ! Il se dresse vers le ciel et le wagon l'y envoie, d'où il retombe en perforant la poitrine d'un des soldats rouges qui s'effondre. Certains d'entre eux continuent à tirer, d'autres s'enfuient, d'autres encore, que la peur a rendu bêtes, courent le long des rails au lieu de s'en éloigner et quand la mitrailleuse les fauche, Vsévo remarque à quel point le train roule lentement. Si près des voies, on aurait dû les dépasser sans avoir le temps de les viser. Il se retourne pour aller recharger la chaudière mais Stoliaroff l'a devancé. Il repasse la tête au dehors. De chaque côté défilent des poutres métalliques entrelacées, les rivets ressemblent à des points de couture : on traverse le pont ! Depuis les wagons monte une clameur victorieuse : l'armée des Volontaires prend pied sur la rive droite du Dniepr !
+Stoliaroff y répond pas trois coups de sifflets bref, puis diminue la vapeur, on commence le freinage, le crissement du métal couvre, pour un instant encore l'engueulade dont le lieutenant va les gratifier. 
+À l'arrêt, Vsévo et Micha vont la chercher eux-mêmes. 
+- Vous deviez ralentir jusqu'à la fin de la courbe. Et s'ils avaient embusqué un de leurs trains sur le pont ?
+- Oui, mon lieutenant. Mais il n'y avait pas de train sur le pont. 
+- Il y aurait pu y en avoir un. 
+- Sauf votre respect, non, mon lieutenant, il n'aurait pas pu y en avoir. 
+- Bien-sûr que si, il aurait pu être masqué par les poutres du pont, et invisible pour le renseignement !
+- Leurs trains sont de vrais trains blindés, dit Vsévo, avec de l'acier jusqu'aux essieux, deux fois plus de wagons que les nôtres, sûrement quatre fois plus lourds. 
+- Justement, s'il avait été sur le pont, on se serait écrasé dessus comme une pêche mur contre un bloc de marbre, dit le lieutenant, et il semble prêt à frapper Vsévo. 
+- C'est justement cela, mon lieutenant. Un bloc de marbre, c'est trop lourd pour qu'on le stationne sur un pont comme celui-ci. Le faire traverser à vitesse mesurée ? Oui. Mais y rester ? Un seul tir de canon, même du soixante-seize, et c'est l'effondrement assuré. 
+- Ah, parce qu'on s'y connaît en pont, alors ? 
+Vsévo ne répond rien. Il repense aux grandes feuilles bleuies par le soleil ou les lignes blanches dessinaient des arches et des treillis, et au doigt de son père Valéry qui montre : c'est ici et ici qu'il faudrait renforcer, ou alors raccourcir la travée... 
+
+Il y a toujours eu quelque chose de guerrier au métier d'ingénieur : se rendre seigneur et maître de la nature, de ses lois. Comprendre, c'est prendre, appréhender, vaincre. Le même instinct qui a guidé son père et qui le guidera aussi, toujours à la frontière entre le civil et le militaire. 
+
+
+---
+
+# 35_Trente_cinq même quand on est victorieux
+
+Non. Même quand on est victorieux, elle n'est pas belle, la guerre. 
+Le combat, oui, peut-être, entre soldats, le moment décisif, la preuve de sa valeur, de sa supériorité : nous sommes vivants, vous êtes morts. 
+On gagne une bataille, on gagne du terrain, on gagne ses galons parce que d'autres gradés sont morts. On avance. Le mouvement, c'est la vie. Puis on conquiert la ville, on s'y installe et qu'est ce qu'on fait de soi, hein ? Qu'est-ce qu'on fait de l'esprit, cet animal dressé à l'hypervigilance, l'esprit toujours en éveil et qui ne cherche qu'une chose, l'ennemi ? 
+Le soir, on dort dans des casernes où il dormait la veille,  l'ennemi, dans des draps qui portent encore son odeur, où se dessine encore la forme de son corps épuisé.  Le matin, c'est un autre monde. 
+
+Parce que le truc avec la guerre, c'est que ce n'est pas la guerre tout le temps, et ce n'est surtout pas tout le monde à la guerre. Alors on  les croise, les civils, dont les lois de la guerre nous disent : ni ami, ni ennemi. 
+
+Vsévo et Stoliaroff passent devant le lycée moderne d'Ekaterinoslav. Il y a des gens dans une classe. Est-il possible qu'on continue à donner cours à des garçons et des filles de leur âge ? 
+Le lendemain, l'infanterie arrive en ville, et puis ce cortège dont on ne parle presque jamais, ces wagons, ces chariots, chargés de ce qu'on réquisitionne. On se bat pour l'unité de la Russie, on meurt sur des wagons, on meurt sur des chevaux, on meurt avec des bottes de feutre aux pieds, et les pieds dans la boue : on mérite bien de manger, bordel ! Et les paysans cachent leur grain, leur lait, leurs cochons. C'est eux les cochons, qui nous laisseraient crever de faim. 
+Il faut reconnaître aux paysans que pour sauver un cheval ils égorgeraient avec la même absence de scrupule un Bolchevique ou un Volontaire. 
+Dans les stanitsas (villages, ndbp) d'Ukraine, chaque paysan n'est qu'à une réquisition de rejoindre les bandits anarchistes de Makhno. Lénine ou le tsar, ils s'en fichent, ce ne sont pas des gars de chez eux, juste des gens de la ville qui veulent leur arracher le fruit de leur travail, du travail de la terre, de leur terre. 
+Les écoles qui éduquent les enfants, les médecins qui soignent les mères, les hôpitaux qui sauvent les fils quand on les ramène du front ou de la mine à temps, les trains... ils ne comprennent pas qu'il faut un gouvernement pour tout ça. 
+En ville, parfois, c'est l'inverse, et c'est presque pire. Ils veulent un gouvernement, et ils finissent par s'en foutre, de savoir si le maire rend des comptes à un soviet, une assemblée ou à un préfet, pourvu que les fonctionnaires soient payés.
+Ça n'empêche pas les règlements de compte, les dénonciations. Après quelques jours, quand on entend des détonations, ce ne sont plus des combats, juste des exécutions. 
+- Viens, on se casse, dit Stoliaroff. 
+- Où veux tu qu'on aille, Mikhaïl ? répond Vsévo. 
+- J'en sais rien, on va à la gare. Voir les trains. J'ai pas envie d'assister à...
+Micha se tait. 
+- Ouais, allons à la gare. On sait que c'est sécurisé, là-bas. On risque pas de se prendre une balle perdue. 
+Après des mois de voie de chemin de fer, de gares réduites à deux quais hostiles, marcher dans la rue a quelque chose d'étrange. À chaque carrefour, chaque croisement, il faut se repérer, choisir la direction à prendre. 
+- Mais elle est où, cette foutue gare ? 
+- Viens, on rattrape le Dniepr et on le remonte, on tombera forcément dessus. 
+Ils tombent plutôt sur des soldats, qui chantent des chants cosaques et qui les entraînent dans un cabaret. Il y a des filles. 
+- Allez, cadets, buvez un coup !
+Ils n'osent pas accepter. Ce n'est pas l'alcool qui fait peur, mais on n'a pas un rouble. 
+- C'est que... commence Vsévo, gêné...
+- Quoi ? On n'est pas assez bien pour vous ? C'est parce qu'on n'est que des fantassins ? Et vous êtes du train blindé, à ce que je vois. 
+Vsévo se rappelle les marins dont l'avait sauvé la vieille juive du train, il y a un an, il y a un siècle, mais cette fois, au contraire, il ne rêve que de sentir sa bouche brûler sous l'effet de l'alcool. Enfin, le soldat comprend. 
+- T'en fais pas. On paie pas, aujourd'hui. Aujourd'hui, ces planqués sont déjà contents qu'on leur demande pas des comptes. 
+- Dis-pas ça mon chéri, minaude une femme maigre qui force son sourire. Tu vois bien qu'on est heureuses de soigner nos héros. 
+Elle sert des verres, on boit. Vsévo se demande si c'est une serveuse ou une prostituée, mais ça n'a pas tellement d'importance. Il boit. Micha aussi, mais il regarde autour de lui, l'air inquiet. On trouve du tabac, on fume. On n'a plus l'habitude. Ni de boire autant d'alcool, ni d'avoir aussi chaud, ni de ce bruit : musique, rire, cris. 
+Alors ils sortent fumer dehors. L'air tiède leur fait du bien. Le silence. 
+- Merde, regarde, dit Stoliaroff en poussant Vsévolode du coude. 
+- Quoi, les silhouettes ? 
+- Ouais, si c'est des officiers on va se faire engueuler. 
+
+Comme les adolescents qu'ils sont encore, ils détalent, tournent à gauche, à droite, et l'ivresse vient moins de l'effet de la vodka que de ces choix qu'on fait sans réfléchir, et qui mènent pourtant là où on devait arriver : devant la gare. 
+
+- Regarde moi ce machin, dit Stoliaroff, regarde moi ces tours. C'est une gare ou un palais tatare ? Il rigole et reprend : non mais trois rangées de colonnades ? 
+- Arrête, arrête, répond Vsévo, hilare, si ça se trouve, c'est mon paternel qui a dessiné les plans !
+- Viens, on rentre, on se fait remarquer par des officiers, comme ça demain, si on nous reproche de rater l'appel, on dira qu'on voulait se rendre utile à la gare. 
+
+À l'intérieur ils dessaoulent brutalement. Les militaires repoussent les civils qui veulent s'embarquer dans n'importe quel train. 
+- Eh, quoi, on veut s'enfuir, maintenant ? On a des choses à se reprocher ? On n'est plus protégé par ses copains rouges ? 
+- Mais non, mais non enfin, c'est le contraire, ils nous empêchaient de partir, on veut juste rentrer chez nous. 
+- Eh, toi, d'abord, t'as l'air bien jeune, pourquoi tu t'engages pas ? 
+- Je suis médecin, lieutenant. 
+- Je suis pas lieutenant, t'as pas appris à lire un grade ? Et puis on a besoin de médecins. 
+- Mais j'ai plus de quarante ans répond le médecin. 
+- Quarante ans ? Tu parles. Tu crois que je suis né de la dernière averse ? Montre tes papiers, salaud.
+
+Avec leur uniforme, Vsévo et Micha passent sans problème. Mais pour aller où ? Ils avancent sur un quai sans train. Ils traversent des voies. Ils marchent et marchent encore, traversent d'autres voies, de garage. Ici on répare une locomotive. Là, on charge un wagon avec de quoi réparer les dégâts de l'assaut de la veille. 
+- Eh, les gars. 
+Ils se retournent. 
+- Faut pas aller plus loin, les gars. Les bolchos sont tout près, à ce qu'il paraît. On dit qu'ils ont abandonné une loco à une ou deux verstes après la sortie de la ville. Mais c'est peut-être une ruse. Si ça se trouve, ils sont encore là, et demain ils attaqueront à l'aube. 
+Au loin quelques coups de feu éclatent. L'employé de la gare qui les a interpellés commente. 
+- C'est comme ça depuis ce matin. Tantôt ça tire en ville, surtout là bas, dans le quartier juif, tantôt c'est dans la gare. 
+Sans se concerter, les jeunes cadets continuent à longer la voie ferrée. S'éloigner de la gare, des détonations. Suivre les rails les rassure, les canalise. Ils tombent sur une draisine à bras laissée là par une équipe de maintenance. Un banc à l'arrière, un levier. Ils se regardent. 
+- Non... ?
+- Quoi ? 
+- Allez, t'y penses aussi???
+- À quoi ? 
+- Vraiment ? 
+- Quoi, t'es sérieux ? 
+- Pourquoi pas ? 
+- Allez, davaï !
+
+Ils s'asseyent, chacun se saisit d'un coté de la poignée et ils actionnent le levier. Ce n'est pas un levier à bascule qu'on actionne de haut en bas mais une draisine russe, on ramène le levier à soi puis on le repousse. Leur monture prend de la vitesse. Dans les veines, le sang se réchauffe et l'alcool qu'on y avait oublié se réveille. Déjà ils sortent de la ville.
+
+- Allez, tire un peu, feignasse, c'est moi qui fait tout le boulot...
+- Tu rigoles, on va bien assez vite, on commence à ne plus voir grand-chose, là...
+- Et alors, de quoi t'as peur ? Du noir ? 
+- Moi, peur ? On risque pas de faire une sortie de route, mais s'ils ont laissé une barricade sur la route ? 
+- Pff, jamais ils ont eu le temps. Allez, t'as peur du noir, en fait...
+
+En fait, c'est quand la nuit est transpercée de lueurs qu'ils commencent à avoir peur. Et s'ils avaient rejoint l'arrière-garde rouge ? 
+Sur les bords de la voie ferrée, des groupes d'hommes sont rassemblés autour de feux de camps. Depuis la draisine, impossible de voir s'il s'agit de civils ou de militaires. Sans se concerter, ils cessent d'actionner le levier qui poursuit sur son erre. Ses grincements discrets leur semblent un tintamarre. Chacun regarde d'un côté de la voie, les yeux tendus vers l'obscurité, les oreilles avides du moindre signe de présence sur les côtés. Mais l'obstacle qu'ils percutent était droit devant eux. Stoliaroff heurte le levier. Vsévo, lui, est projeté vers l'avant, à moitié assommé par la locomotive contre laquelle sa tête cogne. 
+La locomotive !
+Ils ne bougent pas. Quelqu'un peut venir. Quelqu'un va venir, c'est sûr, après ce bruit d'apocalypse. Vsévo se remet de son choc : "Putain, j'ai rien, pas un pistolet, pas même un couteau, on est foutus."
+Mais rien ne bouge. Pas même Mikhaïl. Est-ce qu'il est inconscient ? Pas un bruit. 
+La transpiration plaque la chemise sur la peau. Un bruit de ballast. Un silence. "Ah, merde." Vsévo a crié malgré lui. C'est Micha qui vient de lui toucher l'épaule. 
+Ils se lèvent, marchent doucement, chuchotent en longeant le train. 
+- Ils ont laissé un train entier, ces salauds. 
+- Tu crois qu'ils ont manqué de charbon ? 
+- Dans la chaudière, peut-être, mais regarde, le premier wagon est rempli ras-la-gueule.
+- Tu crois qu'ils préparent une attaque à l'aube ? 
+Ils font le tour avec précaution, mais arrivé à la fin du train qui ne compte que quelques wagons, ils trouvent leur réponse : des traverses jetées sur les rails barrent la voie vers l'ouest.  
+- Ils devaient craindre les Makhnovistes plus que nous. 
+- Je croyais que Makhno était avec eux ? dit Misha.
+- Makhno est contre nous, mais il n'est avec personne, répond Vsévo. Ou plutôt, il se range derrière les Bolcheviques chaque fois qu'on est sur le point de remporter une bataille, mais les Bolcheviques le trahissent à chaque fois qu'ils reprennent confiance. Les paysans le soutiennent parce que les Rouges parlent de grandes fermes collectives, leurs kholkozes à la con. Mais lui, c'est un paysan, alors il sait que ça ne marchera jamais, les laboureurs, ils ont besoin d'un lien à la terre. Même les fils de serfs qui travaillent sur le domaine de mon père, ils préféreraient travailler pour nous, qui connaissons le domaine, que pour un commissaire de Moscou qui leur dit combien de grain faut produire alors qu'il n'a jamais vu une charrue. 
+Sans se concerter, sans même vraiment le décider, presque par habitude, tout en continuant à parler à voix basse, Vsévolode et Mikhaïl répètent les gestes qu'ils ont fait cent fois. Des gestes si rodés qu'ils ne font presque pas de bruit. Déjà la chaudière monte en température. Chaque pelletée de charbon résonne comme une carotte crue qu'on croquerait au milieu de funérailles : gênante, incongrue, mais pas tonitruante. 
+L'air moite qui les entoure semble amortir le son de la porte en métal quand ils referment la chaudière. La vapeur qui commence à s'élever se confond avec la brume qui monte du sol qui a chauffé toute la journée. 
+Pourtant Vsévo garde la tête froide et détache les wagons, si les bolcheviques les poursuivent, ce sera leur seule chance de prendre assez de vitesse pour leur échapper.  Voilà le premier tour de roue. Le fracas est énorme. La locomotive s'ébranle mais rien n'a l'air d'avancer. Pourtant un autre tour de roue, et un autre, imperceptiblement moins lent. 
+Vsévo sait quel levier pousser, quelle manivelle tourner, mais une voix les interpelle dans la nuit. D'abord c'est une simple question. " Qu'est ce que vous faites ? Qui vous a dit de...", une question répétée, "Qu'est-ce que vous faites, mais qu'est-ce que vous faites, camarades ?" ça se me à crier et Stoliaroff aussi : " À terre, à terre, ils vont tirer !"
+Vsévo se plaque et se brûle contre la paroi de la chaudière hurlante, mais il reste debout. Il surveille la pression. Personne ne tire, car personne ne semble comprendre ce qui se passe. Vsévo sent les jointures des rails cogner de plus en plus souvent. Cette fois, ça tire, mais le bruit des balles contre la fonte n'est plus qu'un écho d'une réalité qui ne le concerne pas. La seule chose qui importe c'est que le monstre avance, que la bête accélère. La distance qu'ils ont mis la moitié de la nuit à franchir, la machine l'avale dans l'autre sens en quelques minutes, poussant devant elle la draisine qui menace de dérailler à chaque courbe. Un poste qu'ils avaient croisé sans le voir, et plus miraculeux, sans en être vu, leur fait signe de s'arrêter, mais juste comme on prévient des machinistes idiots : "au-delà de cette limite votre ticket n'est plus valable ! Au-delà de cette limite, c'est la guerre, les gars !"
+La locomotive galope vers le soleil qui se lève. Vsévo plisse les yeux, bientôt ils pourront voir se découper les tours de la gare et leurs balustrades ridicules. Son visage couvert de suie noire, d'où ressortent ces yeux d'acier dont l'éclat se devine sur les rares photos en noirs et blancs des archives familiales, ressemble à ce qui deviendra l'archétype de ceux qu'ils combattent : un jeune prolétaire dont le visage encharbonné est traversé par l'éclair lumineux de son sourire. 
+- Bystrié, tavarichtch, plus vite, camarade ! lui lance Stoliaroff, et ils regardent, hilares, la plaine que le soleil n'a pas encore réveillée.
+- Je crois qu'avec ça, on ne devrait pas nous engueuler même si on a raté l'appel !
+
+---
+
+# 36_Trente_six mon poing dans la gueule
+
+Je ne sais pas précisément ce qui a valu à Vsévo d'être décoré de l'ordre de saint Georges : la prise du pont ? Le train qu'il a subtilisé à l'armée adverse ? Un autre exploit que je ne connaîtrai jamais ?Dans le fichier que j'ai retrouvé il est simplement indiqué : pour plus de précision consulter les états de service. C'est donc qu'ils existent, que quelqu'un les a quelque part. Peut-être réapparaîtront-ils tout seuls, comme ce cahier à la couverture entoilée dans lequel Vsévo a conservé des copies carbones des lettres qu'il envoyait. Je l'ai trouvé un jour dans une boîte que j'avais pourtant déjà fouillée cent fois. 
+J'imagine qu'ayant ouvert le cahier au hasard, j'étais tombé sur une page où il rendait compte de la comptabilité de la section de l'association d'ancien combattants dont il était responsable. Une autre fois, je l'aurais ouvert et me serais dit : "jamais je n'arriverai à déchiffrer tout ça." Et puis un jour, j'ai dû être plus attentif et j'ai vu qu'il s'agissait de lettres, tangibles, entre mes mains, et pourtant si dures à déchiffrer. 
+Aucune des traductrices professionnelles à qui j'ai demandé un un devis n'a souhaité s'y lancer. Ecriture manuscrite, présence de lettres que la réforme orthographique a ensuite abolies, lisibilité amoindrie par la copie carbone... J'ai appelé ma professeur de lycée. 
+
+D'un an ou deux plus âgée que mon père, elle l'avait croisé dans la cour du collège où il était venu m'inscrire : 
+
+- Boris ? Boris Vsévolodevitch ? C'est bien toi ? 
+- Galli ? Je ne t'ai pas vu depuis la dernière fois que je suis allé à la cathédrale de la rue Daru, il doit y avoir vingt ans !
+- Mais qu'est-ce que tu fais là ? 
+- J'inscris mon fils au collège. Il dit qu'il veut apprendre le Russe. 
+- Tu ne le lui as pas appris, toi ? 
+- Pour quoi faire ? Tu veux qu'il aille faire le clown chez les Vitiazes ( Note : les vitiazes sont des scouts russes où on envoyait les enfants de la diaspora pour qu'ils continuent à apprendre la culture pré-révolutionnaire ) ? Comme les enfants de mon frère ? Enfin, qu'est-ce que tu veux, il parait qu'on doit s'intéresser à ses racines et comme c'est le seul collège où on enseigne le Russe. Et encore, si tu veux mon avis, ce n'est pas possible d'apprendre le Russe à des gosiers français. Mon premier garçon a eu des cours de Russe au collège, puis par correspondance. Il se débrouille, il n'a pas le pire des accents, mais le peu que j'ai vu de ses cours, ça paraissait théorique et un peu idiot, je ne suis pas sûr qu'il survivrait une semaine à Moscou. Si tu veux mon avis, non seulement les profs de russe ne seront jamais capable d'enseigner le russe, pas plus que de réussir une Paskha ( Note : Dessert traditionnel de paques à base de fromage égoutté, rarement assez sec au goût des russes blancs). Et toi, qu'est-ce que tu fais là ? 
+- Moi ? Je suis la prof de Russe. 
+
+Et nous voilà, trente-cinq ans plus tard, alors que mon père est mort depuis dix ans, penchés sur le cahier des copies carbones des lettres de Vsévo. En deux jours nous n'avons transcrit que cinq pages. Des nouvelles banales, des mondanités, et, au détour d'une phrase qui n'annonce rien de spécial : 
+
+" Tu as toujours cette balle que j'avais rapporté du front ? Tu te rappelles comme la mitrailleuse arrosait : tchakatchakatchak !"
+
+Souvent, il faut faire des pauses : c'est un travail harassant. Et je vois ma professeure fatiguer malgré son énergie hors du commun. Comme je voyais mon oncle fatiguer quand je l'interviewais avec l'enregistreur allumé. 
+Il y a un égoïsme presque brutal à solliciter sans cesse ces personnes vivantes, mais âgées, sur ce grand-père qui est mort si jeune. L'égoïsme de cette histoire qui veut être dite, paradoxalement, me pousse à me rapprocher de ces gens. M'apprend à écouter, petit à petit. 
+Comme je les déteste, ces enregistrements où je passe mon temps à couper la parole de ceux qui prennent un peu du leur pour m'apprendre ce qu'ils savent. 
+Et pourtant, petit à petit, les attitudes, les rôles, les positions s'effacent, petit à petit se dessine une communauté, une frange, une lisière, un continuum entre le passé, le présent, le Russe, le Français. 
+Peut-être que ce que nous partageons, plus que d'autres descendants de Russes Blancs droits dans leurs bottes quasi cosaques, c'est une inquiétude, un tiraillement, entre, d'un côté, une loyauté, un désir immense de payer notre dette à ceux qui ont tant traversé pour rendre notre vie possible, cette vie si facile, qui devait être si confortable qu'on en culpabilise, et de l'autre côté, le sentiment inavouable que quelque chose cloche. 
+Vsévo a dix-sept ans et cela fait déjà un an qu'il combat au sein de l'armée des Volontaires. 
+
+Mon fils à dix-sept ans. 
+
+Aussi invraisemblable que cela nous aurait paru il y a quelques années, une nouvelle guerre de haute intensité est possible en Europe. Celui qui viendra me dire que c'est l'occasion pour mon fils de prouver sa valeur recevra mon poing dans sa gueule. 
+
+---
+
+# 37_Trente_sept_Il deteste_ceux_qui_l_ont_frappe
+
+Je n'ai pas retrouvé les états de service de Vsévo, mais j'ai cette carte, dessinée à la main par mon oncle. Une ligne verte retrace  le parcours de son père. Le départ, en abrégé, "SPbg" pour Saint Petersbourg, et non Petrograd, puis une ligne droite jusqu'à Moscou, puis le sud, le sud, le sud, jusqu'à "STARIY KPYM." Il faut lire Staryï Krym, mais le son r, en cyrillique, s'écrit avec un p, sans doute dérivé du $\rho$ grec, et mon oncle a passé sa vie à naviguer entre les alphabets, cyrilliques et latins, évidemment, mais aussi grec, arabe... Il m'arrive aussi de mélanger les alphabets quand j'écris après avoir exploré les archives familiales. 
+
+De Staryï Krym, la ligne bifurque vers le Kouban, quelque part entre Ekaterinodar et Rostov-sur-le-Don, qu'elle finit par rejoindre avant de continuer vers le nord, vers l'ouest, jusqu'à Ekaterinoslav où nous avons laissé Vsévo. De là, elle ne repart pas vers le nord, vers Moscou, avec le gros des armées blanches dans la contre-offensive  qui a bien failli réussir. Non, elle cavale vers l'ouest, entre le Dniepr et le Dniestr, comme une excroissance incongrue, une anomalie. 
+C'est qu'en histoire, les grands mouvements d'une guerre résultent de la multitude de conflits locaux, comme en physique la pression d'un gaz résulte des trajectoires quasi aléatoires des particules qui le composent. 
+Il faut creuser les sources un peu plus profondément pour tenter de deviner pourquoi une partie des troupes de Dénikine a cavalé à l'ouest. Lequel, parmi ses multiples ennemis pourchassait-il ? 
+La paix de Brest Litocsk a laissé l'Ukraine sous influence allemande. Mais leur pantin, Skoropadski a déjà été chassé. Il reste, en plus des bolchéviques et des armées blanches, ce qu'on appellerait aujourd'hui des chefs de guerre, des attamans autoproclamés ou élus par les Cosaques qui les entourent, il y a les nationalistes ukrainiens rangés derrière Petlioura... Et puis il y a Nestor Makhno. 
+On dit que l'histoire est écrite par les vainqueurs. Elle est surtout écrite par les États.
+Les Russes Blancs ont perdu la guerre, ils ont emporté avec eux l'histoire de l'Empire Tsariste. Les Rouges ont gagné et créé l'Union Soviétique. 
+Mais les Makhnovistes, comme les communards massacrés par Thiers avant eux, et comme après eux les anarcho-syndicalistes catalans, écrasés en 1938 par les staliniens plus encore que par les franquistes, les makhnovistes ne se battent pas pour un État, qu'il soit Russe ou qu'il soit Ukrainien, ils se battent pour la terre. 
+
+Makhno ne déteste pas le capitalisme, il ne déteste pas un système, certes oppressif mais abstrait, comme le font Marx ou Lénine. Makhno déteste ceux qui lui ont donné des coups, le fils du paysan chez qui il travaillait dès sept ans, il déteste des bourgeois bien réels, des policiers, qui l'ont battu dans la vie réelle. Nestor Makhno a trente-et-un an. Ce n'est plus un adolescent, mais c'est quand même un peu jeune pour être à la tête d'une armée qui compte des dizaines de milliers d'hommes, peut-être cent mille. Mais comment savoir, puisqu'ils sont toujours en mouvement et qu'ils passent sans cesse du statut de soldat à celui de paysan ? C'est aussi un peu jeune pour se faire appeler petit père, mais c'est pourtant comme ça que ses partisans l'appellent : Batko. 
+Il faut dire qu'il a commencé tôt. À sept ans il garde les bêtes des villageois assez riches pour en avoir. À quinze ans, il intègre le cercle anarchiste de la ville de Gouliaï Polié, à force d'insister parce que ses aînés n'ont que faire d'un gamin dans leur cercle de lecture : on y lit Bakounine, Kropotkine et on passe aux travaux pratiques, qu'on appelle expropriation quand on les met en œuvre et terrorisme quand on les subit. Lorsque Makhno s'essaie à la confection de bombes artisanales, c'est dans le plat familial, sans prévenir sa mère. Elle voit le four extérieur exploser projetant des morceaux de vaisselle dans toute al cour. La recette doit fonctionner puisqu'au moment des troubles de la première révolution Russe, celle de 1905, son groupe attente à la vie d'un gendarme. Makhno est condamné à mort avec le reste des anarchistes. Il a dix-sept ans. Sa mère, qui tient plus à son fils qu'à sa vaisselle, supplie le gouverneur de la région d'épargner Makhno, et, miracle, sa peine est commuée en prison à vie. 
+
+La prison des Boutyrki est un véritable centre de formation, on y croise tous les prisonniers politiques que le pouvoir craint, des socialistes, des communistes et bien-sûr des anarchistes. Makhno est avide de savoir, mais s'il absorbe la théorie - danger du pouvoir centralisé, de l'état, de l'autorité- s'il est convaincu que la solution se trouve dans l'auto-détermination, l'auto-gestion en communes fondées sur l'entraide, il finit par ne ressentir que du mépris pour les intellectuels qu'il fréquente. En effet, même en prison, il y a deux poids deux mesures, surtout si tu ne pèses pas. Il écrira sur eux :  "Pour les problèmes concrets, ce sont des enfants, et ceux qui ne le sont pas ne sont jamais vraiment sincères."
+Même les partisans de Makhno ne seront pas tous sincères. Certains le trahiront et d'autres le desserviront en voulant écrire une légende dorée. Mais c'est la guerre la réalité n'est pas simple. Makhno doit conclure des alliances temporaires, parfois avec les bolcheviques, parfois avec d'autres chefs de guerre dont il ne partage pas le nationalisme ni l'antisémitisme, comme le pseudo-attaman Grigorieff. Quand celui-ci se dira prêt à s'allier à Dénikine pour contrer les bolcheviques, dont Makhno subit pourtant également la duplicité, il sera condamné séance tenante, abattu les yeux dans les yeux. 
+Non, Makhno n'était pas un saint. Mais il y a quelques gestes qui le distinguent des figures des deux camps dont on nous a parlé à l'école, les rouges bolchéviques et les blancs contre-révolutionnaires. 
+Dans les premiers temps de la Makhnochtchina, cette agrégation de communes libres auto-gérées, quand Makhno expropriait un propriétaire terrien, un de ces paysans riches qui avaient créé l'Union des Russes Véritables précisément pour écraser l'Union des Laboureurs Pauvres à laquelle l'anarchiste participait,  quand Makhno se saisissait de ses terres pour les redistribuer aux paysans du village, il attribuait à l'ancien propriétaire le même lopin qu'aux autres. 
+Qu'ils soient riches ou pauvres,  qu'ils parlent Russe ou Ukrainien, et le plus souvent tous parlent le sourjyk, un mélange des deux langues que tous les paysans comprennent, qu'ils soient Juifs, ou Grecs, Makhno partage entre tous la terre, le travail et la lutte. 
+
+Plus tard, quand Trotsky s'acharnera sur ses partisans, Makhno proposera en vain de se démettre du commandement de son armée en échange de l'arrêt des persécutions soviétiques. On ne mène pas une armée sans être un peu égocentrique, un peu mégalomaniaque, mais parmi les mégalomaniaques égocentriques de ces temps troublés, Makhno se démarque, et c'est peut-être à cause de son intégrité qu'il terminera ses jours sans gloire ni argent, tourneur dans les usines Renault de Boulogne-Billancourt, sans doute aux côtés des Blancs qu'il aura tant combattus. 
+Et c'est à moi, qui, malgré ma reconnaissance atavique pour la France qui a recueilli ces premiers apatrides qu'étaient mes grand-parents, suis imperméable à l'idée de patriotisme, moi, qui, malgré mon amour pour cette Russie du vingtième-siècle tardif ou tous les espoirs, toutes les réconciliations étaient possibles suis étranger à toute nostalgie d'ancien régime, c'est à moi qui malgré mon amour viscéral pour la Bretagne où j'ai fini par m'arrêter, comme si, enfin, j'étais assez à l'Ouest, comme si, débarrassé de Litovsk, Brest était la seule terre où pouvait naître mon fils, c'est à moi d'écrire l'histoire de la défaite de ceux dont je descends face à l'armée de paysans anarchistes de Nestor Ivanovitch Makhno, sans qui, peut-être, leur contre-révolution réactionnaire aurait mis fin à ce qui deviendrait la plus longue et une des plus terribles dictatures du vingtièmes siècle. 
+
+---
+
+# 38_Trente_huit_Nom_de_train_le_nom
+
+- Ils ont capturé l'Invincible ! 
+- Quoi ? 
+- Le train blindé, l'Invincible, au sud, ils l'ont pris, avec les hommes et les munitions !
+- C'est impossible ! Qui a pu le prendre ? Les Rouges se sont repliés au nord, il paraît qu'ils ont eu vent de la contre offensive que prépare notre Dénikine...
+- Va savoir s'il se considère comme un rouge, un vert ou un noir, en tout cas, c'est Makhno qui a capturé le train. 
+- Comment ça, Makhno ? C'est pas un paysan à cheval avec trois fourches et deux fusils qui a capturé l'Invincible...
+- Moi j'y crois pas, c'est de l'agit-prop des cocos pour nous démoraliser. 
+- Surtout que l'Invicible, c'est autre chose que le Dmitri Donskoï, ou même que notre train à nous. C'est du vrai, du blindé costaud, du cuirassier sur rails...                              &
+
+À la stupéfaction succède l'abattement. Le lieutenant Ogloblionsky le confirme aux cadets et aux junkers : Makhno et ses tachankas ont eu raison du fleuron des trains blindés de l'armée de Dénikine. 
+- Simplement des tachankas ? demande Stoliaroff. Mais comment une charrette tirée par un seul cheval arrête un train blindé ? 
+- Ils montent une mitrailleuse dessus. Et justement, un seul cheval, ça tourne dans tous les sens, ça passe par tous les chemins, les ravins, les ribines, répond un adjudant. 
+- Et quand le cheval est à bout, ils s'arrêtent n'importe où, ils laissent le cheval, et on leur en donne un autre, sans rien leur demander. Ils font cent verstes dans la journée. Avec une mitrailleuse, et un ou deux hommes qui suivent sur d'autres canassons. 
+- Tu les vois battre en retraite, tu les poursuis, et quand tu les vois disparaître dans un bois devant toi, en fait, ils attaquent tes arrières. 
+- N'importe quel vieux paysan qui se signe à ton passage et qui maudit les soviets à haute voix peut te planter une lame dans le dos quand tu n'es pas sur tes gardes. 
+- Ils nous détestent, ils ne croient en rien. Je ne leur demande pas de regretter le Tsar, mais la Russie, comment peuvent-ils cracher sur l'Histoire, sur l'Église ? 
+- Les polonais leur ont un peu trop appris à se signer à l'envers ! [ Note bas de page : les orthodoxes et les catholiques ne font pas le signe de crois dans le même sens. L'Ukraine se situe sur la zone de partage d'influence entre les deux confessions]
+Stoliaroff ne dit rien. Une grande partie de la troupe est constituée de cadets, de junkers, d'officiers en surnombre. Tous ont un frère, un cousin, un père qui s'est fait massacrer par les soviets de soldats. Mais aucun ne se demande pourquoi les soldats avaient une telle soif de meurtre contre leur hiérarchie. Aucun n'a subi l'humiliation héréditaire. Depuis l'enfance, ils sont tous biberonnés au culte du chef et au respect de l'ordre établi. 
+Mais les moujiks, les mineurs, les ouvriers, qu'est ce qu'ils ont à y gagner, au retour de l'ordre ancien, celui des Poutiloffs et autres grands patrons ?
+Maintenant qu'ils sont entre cadets, Stoliaroff ose juste dire : 
+- Ils ont pris l'Invincible parce qu'ils n'ont rien à perdre. 
+- Qu'est-ce que tu veux dire, demande Vsévo ? 
+- Nous ont se bat pour sauver notre Russie. Regarde, nos trains blindés, on les a appelés Dmitri Donskoï, Ivan Kalita, des noms de princes, de chefs d'il y a cinq ou dix siècles. Et eux...
+- Mais de quoi tu parles, interrompt Vsévo. Et le train Korniloff ? Ça fait six cents ans qu'il est mort, Korniloff ? Tu étais là quand l'artillerie Rouge l'a assassiné. Ça fait tout juste un an. 
+- Korniloff, parlons-en, de Korniloff. Celui qu'on a envoyé rétablir la discipline dans les armées après que Trotsky a aboli la hiérarchie, celui qui a voulu renverser le gouvernement provisoire, alors tu peux y aller, tu peux aussi citer le train Ataman Bogaevsky, le train Général Alexieff, le train Chkouro, celui-là n'est même pas encore mort. Tu sais comment ils les ont appelés, leurs trains, les Rouges ? Regarde, la liste est là, fournie par le renseignement. Le train blindé numéro deux : "La Victoire ou la Mort." Regarde : le train Spartakus. Tiens, train numéro huit : le Libérateur. On encore celui-ci, le Paysan Rouge. Tiens, lis, train numéro quatre, le Communard !
+- Les communards se sont fait massacrer par Thiers, dit Vsévo, tu parles d'un chant de victoire.
+- Mais justement, justement ! Ils arrivent à capturer l'Invincible parce qu'ils préfèrent la mort à la vie qu'ils avaient avant. Ne vous trompez pas, les gars, j'ai autant envie de les écraser que vous, hein ? Et j'étranglerais Trotsky de mes propres mains, mais autant je suis sûr qu'on peut gagner la guerre contre les Bolchéviques et leurs mensonges, autant je ne suis pas sûr qu'on puisse gagner la guerre contre le peuple. Qu'est-ce qu'on leur promet, si on gagne, hein ? 
+- L'ordre, la sécurité, pas le bordel dans lequel les socialistes, les communistes et les soi-disant libéraux ont plongé la Russie, répond Vsévo. 
+- L'ordre, quel ordre ? Celui des officiers ? Ils ont un train qui s'appelle "Mort à la Contre-Révolution," un autre qui s'appelle "Mort à Dénikine !" Tiens, lis-ça. Train numéro cinquante-et-un, 'Le Terrible Vengeur des Morts de la Commune." Tu crois qu'on les fait rêver avec nos trains qui s'appellent "Pour la Sainte Russie," ou "Général Markoff ?" C'est comme de dire à un cheval, viens, rejoins nous, notre parti s'appelle Fouet et Cravache !
+- Mais quoi, s'énerve Vsévo, tu veux qu'on appelle notre train "La troisième Internationale ?"
+Un cadet qui jusque là n'avait rien dit rigole en regardant la liste des trains Rouges. 
+- Pas la peine, ils en ont déjà un qui s'appelle comme ça. Mais sérieusement, Mikhaïl, ça me dérangerait pas de servir sur le "Général Korniloff. " C'était pas un planqué, quand il est mort, à Ekaterinodar, pendant qu'on traversait la rivière, il aurait pu se tirer vers l'arrière. Nos généraux aussi, ils sont prêts à donner leur vie pour la Russie. 
+- Exactement, dit Vsévo. T'as l'air de croire qu'on ne se bat que pour les propriétaires terriens, mais notre commandant en chef lui-même, notre général Anton Ivanovitch Dénikine, eh ben son propre père est né dans le servage, c'est bien la preuve que...
+- Eh oui, on peut pas tous être né noble et avoir un beau domaine en Crimée, dit Stoliaroff...
+- Oh, ça va, Micha, dit le troisième cadet. On est tous sur les nerfs. Moi, je te le dis, je n'ai pas honte de me battre contre ces massacreurs. Ils ont choisi la couleur de leur drapeau après l'avoir trempé dans le sang de nos père, oublie pas ça. Et si celui de Vsévo a un domaine en Crimée, c'est pas pour rien, je te rappelle, son père, son grand-père, et au-delà, ils se sont battus pour la Russie, en Crimée, contre le Japon, contre l'Allemagne... Alors je préfère servir dans un train qui s'appelle Korniloff que dans un train qui s'appelle, attends, je cherche dans la liste, tiens, voilà, train numéro six, "Train des Ouvriers de l'usine Poutiloff au nom du Camarade Lénine." Tu vois, eux aussi ils aiment leur chef. À ce prix là, j'accepte même que notre train porte le nom d'un simple colonel plutôt que d'une crapule soutenue par les Allemands. 
+Stoliaroff le regarde. Il regarde Vsévo. Il a une seconde d'hésitation. Il sait que cette fois, c'est un coup un peu déloyal qu'il s'apprête à porter. Mais la fatigue, l'énervement...
+- Ah ça, j'imagine que toi non plus, Vsévo, ça te dérangerait pas de servir dans un train qui porte le nom d'un simple colonel, hein ? 
+Vsévo rougit, mais le troisième cadet ne réagit pas. 
+
+Comme moi avant de fouiller dans les archives, il ne sait ps que le train qu'on vient de former sur la ligne "Tsvetkovo-Fastov" s'appelle "le train Colonel Gousseff."
+
+Il ne sait pas non plus que c'est là-bas à Fastov et à Pergeonovka que l'armée Blanche perdra son âme, puis la guerre. 
+
+
+---
+
+# 39_Trente_neuf_comme pour la biere Coreff
+
+J'étais étudiant et mon aide personnalisée au logement ne m'était pas versée. Ce n'était pas la misère, mais c'était quand même la mouise. Assez pour prendre une assiette de légume à sept francs au restaurant universitaire, et aller demander du rab gratuitement pour donner au copain, avant d'inverser les rôles le lendemain. Quand j'ai appelé la caisse d'allocations familiales, une gestionnaire pas trop aimable m'a à moitié engueulé : 
+- Vous devez envoyer votre bail, sinon comment voulez-vous qu'on calcule le montant de votre aide ? 
+- Mais je vous l'ai déjà envoyé deux fois !
+- Votre nom, c'est bien Goussess ?
+- Nom, c'est Gousseff, G, O, U, deux S, E, deux F.
+- C'est ce que j'ai dit, Yousseff !
+- Non, Gousseff, avec un G. 
+- Yousseg ? Avec un G ? Jamais entendu un nom pareil !
+- Non, le G est au début, Gousseff. 
+- Gouffess ? Bon votre prénom, c'est bien Mathieu, M, A, T, H...
+- Il y a deux T, en fait, M, A, deux T...
+- Ah bon, il n'y a pas de H. 
+- Si, deux T et un H.
+- Ah, vous, vous le faites exprès...
+
+J'ai pris mon skate pour économiser deux tickets de bus. C'était une erreur, parce que pour une gestionnaire de la CAF, un étudiant en skate est forcément un branleur, même s'il est en master de mathématiques appliquées. Ou un fraudeur. Une fois au guichet, une autre gestionnaire encore plus charmante me dit :
+- Mais qu'est-ce que vous voulez que j'en foute, de votre bail, ça fait trois fois que vous me l'envoyez. Vous êtes débile ou quoi ? Je vous ai envoyé un courrier pour que vous me postiez votre RIB, votre certificat de scolarité et l'avis d'imposition de vos parents. 
+- Je peux vous demander comment vous avez orthographié mon nom ? 
+- Eh, je suis pas débile, je sais lire : G, O, U, deux S, Et et F. 
+Je pense que la haine qu'elle a lu dans mes yeux lui a fait peur, parce qu'elle n'a pas bronché quand, après lui avoir mis ma carte d'identité sous les yeux je me suis penché pour taper le début de mon nom dans son logiciel de gestion. Il y avait deux demi-dossiers, trois copies du bail d'un côté, trois copies du RIB de l'autre, avec la même adresse, la même date de naissance, l'un au nom de Goussef et l'autre au nom de Gousseff. 
+
+La capacité de mon interlocuteur à épeler mon nom est devenue la meilleure variable prédictrice de la pénibilité de la conversation à venir. Gousseff, avec deux S et deux F et la discussion serait cordiale, enjouée, pourrait faire naître en moi l'envie d'une demande en mariage. Un seul F corrigé à la première demande et nous serions entre gens de qualité. Un seul F suivi de "c'est ce que j'ai dit", et on serait déjà dans le pénible. À partir de Goussess et au-delà, je considère qu'un juge devrait m'accorder des circonstance atténuantes en cas de violence physique. 
+
+Chacun des membres de ma famille a développé des stratégies et nous avons organisé des colloques pour échanger et conclure sur les raisons de leurs échecs successifs. 
+- Faut-il dire deux èsses euh deux èffes ou èsse èsse euh èffe èffe ?
+- Il faut dire deux èsses comme Simone et deux èffes comme François
+- Je pense qu'il faut que la répétition soit dans l'exemple, deux èsses comme Simone Signoret, euh comme Eulalie et deux èffes comme Fédération Française. 
+- Jamais, malheureux, Fédération comme François contiennent le sons èsse, tu obtiendras un Goussess dans quatre-vingt huit pour cent des cas. D'après la *Revue Internationale d'Écorchement des Noms,* avec "deux èffes comme Franck Franck" tu diminues drastiquement ce taux. 
+- Oui, mais le *Journal d'Épellation Universelle des Noms Étrangers* a publié une étude qui montre alors l'apparition des formes Goucerf ou Gousserf, par attraction du son R. 
+Yousseff, Gousset, Roussel, Goussess, l'infamant Gouffess, la liste des exemples réels est interminable. 
+
+Pour ma part, j'ai choisi de m'installer en Bretagne. Longtemps, j'ai cru que c'était parce que c'était là que s'arrêtait le Monde Occidental, et donc l'exil de mon grand-père vers l'Ouest. Puis, j'ai cru que c'était par fidélité pour mon autre grand-père, le français, le catholique, dont la maison à Clohars-Carnoët avait été réquisitionnée par les Alllemands en quarante. Puis, après que mon fils fut né à Brest, vécu à Rennes jusqu'à l'adolescence, je pensais que je restais pour préserver la mémoire des meilleurs moments de ma vie, ceux passés avec lui. Mais si je veux être sincère, c'est la popularité de la bière Coreff, qui détermine mon installation pérenne en Bretagne. "Matthieu Gousseff, avec deux F à la fin, comme pour la bière Coreff." [Note de bas de pages, il existe douzes communes se terminant par deux F en bretagne]
+
+Lorsque j'ai publié mon premier roman, pour éviter les représailles juridiques de mon ancien employeur, j'avais choisi le pseudonyme de Michel Goussu. Puis, l'éditeur de mon deuxième roman m'a demandé de le signer de mon vrai nom. Il avait le vain espoir que les libraires ne fassent pas le lien avec l'échec commercial qu'avait connu "Le Poisson pourrit par la tête" et qu'ils commanderaient plus d'exemplaires "d'Ici Finit le Monde Occidental," roman sur la tranche duquel on peut voir un magnifique Matthieu B. GOUSSEF, avec ce F manquant, initiale du pays à qui nous devons tant. 
+
+Les lecteurs slavophiles se demandent peut-être pourquoi, au-delà de l'aspect pratique, tenir à ce doublement du F. En alphabet cyrillique, ces noms de famille qui se terminent par la lettre cyrillique qui correspond au v français. C'est que la réforme orthographique décidée avant mais mise en place après la révolution russe a supprimé le *,* ь, à la fin des mots. Comme son nom l'indique, il durcissait la consonne qui le précédait, faisant ainsi tendre le v vers un f. Le double f est ainsi un marqueur temporel, presque tribal, des descendants d'émigrés Russes Blancs. 
+
+Ainsi comme n'importe quel descendant d'immigré au nom exotique, chaque interaction administrative nous rappelle que nous ne sommes pas locaux, pas "des français de souche". Longtemps, par fidélité, je précisais :
+- Ça vient du Russe, comme Noureieff. 
+- Ah, comme Gorbatchev ? 
+Je renonçais à expliquer qu'en russe, on prononcerait plutôt Garbatchoff, mais cela suffisait à détendre l'échange. 
+Je ne le fais plus aujourd'hui, car, après avoir compris que la détente venait de ce que Gousseff venait du Russe et non de l'arabe, comme Yousseff, je me sentais à chaque fois un peu collaborateur du racisme anti-maghrébin ambiant. 
+
+Du coup, n'ayant jamais eu à souffrir des conséquences du vrai racisme, celui du délit de faciès et des contrôles d'identités quotidiens, ces petits vexations ont moins contribué à affaiblir mon sentiment de reconnaissance à la France, pays d'accueil, qu'à renforcer mon sentiment d'appartenance aux Gousseffs. Tous les Gousseffs de France étaient mes cousins, nous étions une espèce rare, et ce qui est rare est précieux, non ? 
+
+A renvoyer dans chapitre suivant cf carnet papier
+
+
+
+---
+
+# 40_Quarante_Nom _de_nom
+
+Je savais que Valéri Iakovlevitch Gousseff avait atteint le grade de colonel. Quand mon oncle s'est rendu à Bitola, les vieux lui disaient : "Istyï palkovnik,  le portrait caché du colonel !"
+Quand l'exil du Colonel Valeri Iakovlevitch Gousseff s'était arrêté là, c'était le Royaume des Serbes, des Croates et des Slovènes,  quand mon oncle Lala s'y est rendu, c'était la Yougoslavie, et je me souviens du choc qu'a été pour moi l'éclatement de la Yougoslavie. Je ne savais pas encore qu'il existait un lien entre notre famille et ce territoire, mais simplement, l'idée qu'un état puisse éclater était une chose inconcevable. C'était comme si, soudain, je prenais conscience qu'il y avait un continuum entre l'histoire et le présent, comme si je prenais conscience que le présent n'était que la pointe d'un sismographe qui continue à enregistrer les tremblements d'un continent que je croyais inerte. Comme tous les adolescents narcissiques, j'écrivais des chansons, mauvaises, des chansons d'amour, et pour la première fois, le débordement de sentiments me fit écrire autre chose. Des chansons, mauvaises, encore, mais qui parlaient de ça, de Sarajevo, des casques bleus, de l'impression qu'il y avait une éternité entre mes 14 ans et mes 15 ans : "c'était à une époque, loin, bien avant les enclaves, avant que ne se disloque l'idée d'une idée Yougoslave."
+
+Aujourd'hui, le territoire où est mort mon arrière grand-père, en mille neuf cent quarante-neuf, à cause de problèmes de prostate, s'appelle la Macédoine du Nord. 
+Sa veuve avait stipulé dans son testament que mon oncle et mon père devaient recevoir une moitié en nue-propriété de sa maison, l'autre moitié et la jouissance effective de la maison revenant à ses locataires. Je crois aussi qu'il y avait une pierre, une émeraude, qu'un bijoutier avait essayé de nous faire passer pour une aigue-marine, sans doute avec l'idée de nous la racheter moins cher. 
+Ainsi, de ce grand-père qu'ils n'avaient pas connu, mon père et mon oncle avaient hérité leur visage, si russes, presque identiques, un droit de propriété théorique et un terrain propice au cancer de la prostate. Mais aussi leur don pour les langues, le dessin, la musique, cette intelligence plurielle, curieuse, et ce nom, le nom du colonel Gousseff, si peu répandu dans ce pays qui est le mien. 
+
+Nom qui m'a fait perdre un peu de temps dans mes recherches bibliographiques. Quand je cherchais des informations sur la guerre civile russe, le nom Gousseff, c'est systématiquement ma cousine Catherine Gousseff, directrice de recherche au CNRS spécialisée sur la Russie qui ressortait. Sans ses livres je ne pourrais pas écrire celui-ci. 
+
+Un nom si rare, que le train Colonel Gousseff ne pouvait renvoyer qu'au père de Vsévo, Valéry Iakovlevitch Gousseff, le colonel de Bitola. 
+
+Mais ça ne collait pas. Que mon grand-père me pardonne, mais on ne nomme pas un train blindé en hommage à un colonel du génie, c'est à dire un homme qui fait construire des ponts et creuser des tranchées, un homme qui trace des routes pour l'intendance, et même si c'est ce genre d'hommes qui décide du tracé du chemin de fer sur lequel circule le train "Colonel Gousseff."
+
+Alors, m'est venue l'idée de trahir les deux F de chercher avec Goussef, un F, ou même la transcription anglo-saxonne, Gusev, et enfin de cesser de trembler à l'idée de traduire des pages en cyrillique et de chercher directement Гусев, avec et sans signe dur.
+
+Ils étaient là, partout. Une myriade de Gousseffs. Et parmi eux des colonels en pagaille. 
+Deux d'entre eux étaient probablement les oncles de Vsévo, puisqu'ils partageaient avec Valéry le patronyme Iakovlevitch, fils de Iakov. 
+C'est eux dont j'ai parlé en décrivant les soirées de Staryï Krym, sans savoir qu'ils existaient vraiment, simplement inspiré par ces photos dont l'absence de légende entretient les légendes. Des hommes en uniforme, avec une allure distinguée, moderne, qui contraste avec d'autres photos des mêmes dans ce qui ressemble à des habits traditionnels cosaques. Pourtant tous ces oncles sont nés à Tver, juste au nord de Moscou. 
+
+Il y a aussi Ivan Viktorovitch, colonel lui aussi, lui aussi né à Tver. Le vingt-huit novembre mille neuf cents dix-huit, fatigué des tergiversations et des négociations il fit seller les chevaux de son régiment, monta sur une estrade et dit : " Je rejoins l'Armée des Volontaires avec mon régiment. Quiconque désire mourir honnêtement et avec gloire suive la cavalerie de Novorossisk." L'archive raconte que personne ne le contredit mais qu'ils ne furent pas nombreux alors à se joindre à son régiment. 
+
+Il y eut également des cousins au sein de l'Armée Rouge, un Nikolaï, par exemple, qui plus tard se distingua contre les troupes hitlériennes de l'opération Barbarossa. Il y avait du courage aussi, du côté soviétique. 
+
+Et que dire de Sergueï Ivanovitch Gusev, l'infâme théoricien de l'opposition militaire, qui soutenait que jusque dans l'art de la guerre il fallait développer une spécificité prolétarienne, et qui ne fut pas pour rien dans la prise de pouvoir de Staline à la mort de Lénine ? Rien, il ne faut rien en dire, c'est un usurpateur, son vrai nom était Yakov Davidovitch Drabkin. Mais ce que ça dit de notre nom de famille, c'est qu'il était assez commun pour qu'un opposant au tsar le choisisse comme pseudonyme pour participer, avec Lénine lui-même, à créer la ligue de l'émancipation de la classe ouvrière. 
+
+Un cran plus loin dans la falsification, mon préféré est le capitaine Gusev, combattant de la liberté, officier russe pendu pendant la guerre d'indépendance des Hongrois en 1845. Il change de camp parce que la Russie avait tort de défendre les Habsbourgs qui opprimaient les Hongrois autant que les slaves sur leur territoire. Il fut condamné à voir ses hommes pendus avant lui, et pour cela, la République Populaire de Hongrie nomma des places et des rues en son nom. C'est mon préféré parce qu'il n'a jamais existé, inventé de toutes pièces par Bella Illes, un communiste hongrois qui avait forgé la légende du capitaine Gusev pour la propagande favorable à l'amitié entre les deux peuples. 
+
+Des mois plus tard d'autres archives me parviendront d'autres archives, des lettres adressées à Vsévo, notamment par son père. Il raconte une rencontre qu'il fait dans un wagon de troisième classe qui l'emmène vers Bitola. 
+
+Ainsi je n'étais pas une pierre rare et précieuse, mais un gravier parmi d'autres dans le lit de la rivière Gousseff, qui coule du nord de Moscou au sud de la Crimée en passant par les plaines de Hongrie, d'Ukraine et de Serbie. 
+
+De Serbie ? 
+
+*Lors d'une correspondance à Laptevo, je suis entré dans un wagon de troisième classe. J'ai aperçu une silhouette accompagnée d'une dame.  Moi, j'étais dans ma célèbre demi-fourrure (de la guerre du Japon) et mon chapeau kubanka. L'homme me regarde et  je lui demande : 
+- *Russe ?  ( en serbe : « Russki ? »).  
+- *Russe, me répond-il. Vous êtes le colonel Gousseff ? 
+- *Jesam ( en serbe : « Oui, c'est moi »). 
+- *Vous commandiez un train blindé ? 
+- *Et même huit ! 
+- *Vous êtes le père de Vsiévolode ? 
+- *Tout juste !
+- *Eh bien, moi, je m'appelle Sokoloff.
+- *Ah bon, dis-je, je me souviens bien de vous à Théodosie. 
+C'est ainsi que la conversation a commencé.
+
+C'était un autre Skoloff que celui dont Vsévo épousera la fille bien des années plus tard, mais donc c'était bien lui, le colonel du train. 
+
+
+
+---
+
+# 41_quarante_et_un_deux_F
+
+Pourtant c'est grâce à ce nom, Gousseff, qu'on ma proposé de participer à une mission de recrutement d'élèves ingénieurs russes désireux de se former aux techniques agricoles bretonnes, donc modernes, que j'étudiais moi-même à l'école d'agronomie de Rennes. 
+
+Je n'avais pas conscience de voyager sur la même ligne de chemin de fer que celle que Vsévo, fuyant Petrograd, avait prise pour rejoindre la Crimée. Pendant que le chef de la mission, qui parlait une demi-douzaine de langues couramment, mais avec un accent allemand prononcé dans chacune, m'expliquait ce qu'il attendait de moi, je voyais défiler la plaine, alternance de forêts basses de bouleaux et de résineux et d'immenses champs cultivés qui semblaient ne demander qu'à redevenir une steppe infinie. 
+
+À Koursk, après la visite de l'école d'agriculture et le tour des bâtiments impériaux plus ou moins bien entretenus, on nous avait emmenés voir les monuments érigés en mémoire de la bataille de Koursk. L'idée était, je crois, de nous rappeler combien de soviétiques étaient morts pour mettre Hitler en échec. Alors oui, nous, les occidentaux, on se croyait plus en avance, oui, les élèves Russes en étaient réduits à quémander un stage dans les campagnes de Rennes ou d'Angers, mais c'était aux sacrifices de l'Union soviétique disparue qu'on devait cette avance, et il n'était pas question qu'on l'oublie.  
+Au lieu de réveiller l'admiration pour l'héroïsme, cette terre violette, comme encore colorée par le sang des soldats fit naître en moi une horreur de la plaine. L'absence de frontières naturelles, à part les fleuves, faisait deviner les offensives interminables, les tranchées dans lesquelles on s'enterre vu que rien d'autre ne nous cache, les vagues de chair à canon sacrifiées, d'un côté comme de l'autre, jusqu’à ce que les plus nombreux triomphent sur un lit de cadavres. 
+
+Le lendemain, la neige s'était mise à tomber, à recouvrir ce passé d'une douceur pudique. 
+
+A Belgorod, après les entretiens de sélection, pas de cérémonie officielle. Le chef de mission me présenta à la famille qui m'accueillait pour la nuit dans un russe grammaticalement parfait mais aux sonorités bavaroises prononcées, et me donna rendez-vous le lendemain. Dès qu'il eut fermé la porte il me sembla me retrouver dans un repas de famille, nouvel an ou Noël. Vodka, poissonnailles,  pelmenis (raviolis sibériens), vodka, liqueur de cerise pour faire passer la vodka et vodka pour rincer le sucre que laisse la liqueur sur la langue. 
+La neige se remit à tomber.  "Sneh pachol, kharasho !" (qu'il est bon que la neige tombe !).
+- Ah, vous dites Sneh, pas  sneg ?
+- C'est le sud, ici, on a tendance à aspirer les g pour les changer en h, m'explique Sergueï, l'étudiant qui m'accueille et que nous retiendrons pour le stage.  
+- Comme les khokhols [surnom péjoratif que les Russes donnent aux Ukrainens] rigole son frère, Vladimir. Tu sais ce qui différencie un vrai Russe d'un petit Russe, un Ukrainien ?
+- Visiblement, pas la prononciation des g, ai-je répondu pour être spirituel. 
+- Non, par ce temps-là, le vrai Russe passe aux verges !
+
+Je ne suis pas sûr d'avoir bien compris, alors, devant mon air ahuri, mon hôte me lança un bonnet me dit : "Allez, viens."
+Ils me firent faire le tour de la maison, sous la neige, jusqu'à une cabane en bois attenante. 
+À l'intérieur, un sauna artisanal mais pas rudimentaire était déjà en train de chauffer. Malgré la vodka encore présente dans mes veines, je n'étais pas tout à fait à l'aise de me retrouver à poil avec les étudiants qui me donnaient il y a quelques heures encore du "Gaspadine" (monsieur).
+Rapidement les scrupules se sont évaporés, comme l'eau qu'on versait sur les pierres surchauffées et qui saturait l'air étouffant. 
+- Allez, aux verges. 
+Ils ouvrirent la porte, se mirent à courir dans la neige. Le grand frère se saisit de bagettes de bois et fouetta l'autre qui se tortilla en riant. Pour échapper aux verges, je me jetai dans la neige, et après quelques secondes, me relevai comme électrifié par le froid. 
+- Regarde, il faut faire comme ça. 
+Ils se frottaient avec des poignées de neige et tout d'un coup se précipitèrent à nouveau vers la porte de la cabane-sauna. Je ne savais pas dire "ça dessaoule", alors je dis : "je suis moins ivre après la neige, poslié sneha." Ils se mirent à rire sans pouvoir s'arrtêter, et je ne savais pas si c'était à cause de mon russe bancal ou parce que j'avais fait exprès de bien transformer le g en h. 
+Après trois alternances de roulades dans la neige et de quasi-coma dans l'étuve, ils durent sentir que mon cœur était au bord de la défaillance et nous avons fini par retourner dans la maison. 
+La bouteille de vodka était encore là, les verres aussi, mais notre ivresse devenait moins festive, plus détendue, presque mélancolique. Le plus court chemin entre la fête et la mélancolie passe toujours par le cœur des russes.  
+- Tu sais, on taquine les khokhols, mais il y a soixante-dix kilomètres entre ici et Kharkov. 
+- On aurait pu t'emmener en Ukraine demain, mais pour la première fois depuis quatre-vingt onze, la frontière est un peu fermée. Enfin, ils font des contrôles, il faut un passeport, c'est chiant.
+- C'est des conneries de politiciens, on a tous des copains, des cousins en Ukraine, ça va pas durer, ils vont rouvrir ça d'ici quinze jours. Mon oncle a une datcha dans la campagne à côté de Trostianets, si tu reviens au printemps, ce sera rouvert, je t'emmènerai. 
+- C'est de la faut de l'OTAN, avec leurs conneries de bombardements en Yougoslavie. 
+
+Quelques mois plus tôt, pour arrêter la campagne de nettoyage ethnique que les Serbes orthodoxes avaient engagés contre les Albanais musulmans du Kosovo, l'OTAN avait déclenché une campagne de bombardements, sans avoir obtenu de mandat de l'ONU. Malgré le risque de génocide, la Russie avait opposé son veto, créant un précédent fort utile sur lequel Poutine s'appuie encore aujourd'hui. 
+Je n'ai retrouvé aucun document relatant la fermeture de la frontière avec l'Ukraine à ce moment là. Est-ce qu'elle avait été exagérée par mes hôtes ? Ai-je fabriqué un faux souvenirs pour me justifier de ne jamais être entré en Ukraine, de ne jamais avoir vu Trostianets ?
+
+---
+
+# 42_La veille de la victoire
+
+La voix d'Oglobionski retentit : 
+- Qu'est-ce que c'est que ces conneries ? Pourquoi voulez-vous qu'on rajoute une plateforme ? 
+- On a la permission du colonel, on va quand même pas rapporter tout ça à cheval ?
+- C'est moi, le colonel, ici, dit Oglobionsky, qui est passé lieutenant colonel. Je n'ai pas de place pour ça sur mon train. 
+- Et notre colonel, il nous a promis que si on reprenait Fastov, la ville était à nous pour deux jours. En plus, la moitié de ce qu'on doit charger, c'est pour les officiers !
+- J'en ai rien à foutre, hurle Ogloblionski. De toute façon, vous voulez envoyer ça vers l'arrière. Nous, on avance. On doit aller vers Ouman pendant que la cavalerie fait reculer le moujik et ses anarchistes. 
+Après la prise de l'Invincible, Makhno a d'abord creusé des tranchées le long du Dniepr  pour empêcher les Blancs de reprendre Alexandrovsk. Il a rappelé aux cosaques alentour : "La sietch des zaporogues, c'est ici qu'elle a été fondée. Un jour la ville s'appellera Zaporijia, vous verrez !"
+
+Mais ce sont des Cosaques, menés par le général Chkouro, qui font reculer le Batko. Car Chkouro n'a pas que des cavaliers. Pour la première fois, les makhnovistes font face à des chars et d'autres véhicules blindés. Les soviétiques les ont lâchés, ils manquent de munition, ils manquent d'armes. Mais ils ne manquent pas d'hommes. Nombreux sont les soldats de la 12 ème armée rouge qui préfèrent rejoindre les rangs de la makhnovchtchina plutôt que d'abandonner leur territoire aux Blancs. Makhno dirige quinze mille hommes, dont deux mille cavaliers menés par son bras droit, Schtuss. Une batterie d'artillerie est entièrement composée de juifs qui ne parlent entre eux que yiddish. Un détachement de tirailleurs ne comporte que des Grecs, que la guerre a repoussés depuis Odessa. 
+Makhno ne manque pas non plus de lucidité. Depuis qu'il a abattu Grigorieff et que les Rouges l'ont à nouveau trahi, il sait qu'il ne fait pas le poids face à Dénikine. La meilleure tactique est de fuir. Il cavale cinquante verstes vers l'ouest, puis revient en douce de la moitié, par les ravines, les forêts, par le lit des ruisseaux encaissés. Il surgit par l'arrière et s'empare de munitions, ou, s'il a réussi à s'enfoncer encore plus, il arrache aux convois la nourriture et les fourrures réquisitionnées à la population. Mais au final, les makhnovistes reculent toujours. 
+En quinze jours, les troupes de Dénikine les ont repoussés de six cents kilomètres. Chez les Blancs, on devrait exulter. L'offensive vers le nord a mené le reste des troupes jusqu'à Orel. "Orel, cent quatre-vingt verstes de Moscou, c'est beau. On fouette l'ennemi avec nos nagaïkas comme on renvoie les bêtes à l'étable. C'est beau." (ref en note de bas de page)
+
+Et pourtant. À force de reculer, les Rouges ont regroupés leurs forces. 
+- J'aime pas ça, dit Stoliaroff. 
+- Quoi ? Gagner ? demande Vsévo. Leur terrible Batko, là, il fait que reculer depuis trois semaines. 
+- Je sais, je sais, mais je trouve qu'on est loin. Regarde, ils diminuent nos rations de tabac parce qu'il met trop longtemps à venir. 
+- Tant que ce n'est pas la bouffe. 
+- Ou les munitions ? C'est ça qui m'inquiète. Et puis j'aime pas attendre. Y a que la cavalerie qui avance. 
+- Qu'est ce que tu veux, tu te foutais de mon colonel Gousseff de père, mais s'il y avait plus de types comme lui, on aurait du chemin de fer partout !
+- N'empêche, il recule, on avance et jusqu'où on va aller à l'ouest ?
+- Écoute, ça devrait plus tarder. Les gars qui s'engueulent avec Ogloblionski, là, ils viennent du régiment de Cosaques du Terek qui ramènent des trucs vers l'arrière. C'est qu'on devrait plus tarder à faire la jonction avec eux. Petlioura est à Ouman. C'est un salopard, il n'attaquera pas Makhno, mais il n'osera pas se frotter à nous pour le défendre. Et puis derrière Ouman, t'as les collines du Dniepr, alors même s'ils passent, ils ne vont pas pouvoir se carapater éternellement. 
+- Viens, dit Micha, on va demander des cartes à Ogloblionski. 
+Ils trouvent le lieutenant-colonel toujours aux prises avec des Cosaques. Ils arrivent de Fastov. Cette fois, la discussion ressemble plus à une négociation. Parmi les voix, il y en a une qui se distingue par son accent pétersbourgeois. Les r ne roulent pas, ils grasseyent, les g sont durs et précis, et la diction noble contraste avec les propositions de marchand de tapis. 
+- Ah, je vous comprends bien, mon colonel... Qui aurait envie d'alourdir son train en pleine offensive. Mais on ne va pas aller jusqu'à Paris, hein ? On pourrait charger un wagon, et vous l'attacherez au retour, quand on rentrera vers Moscou ? Dès qu'on sera à Trostianets. on l'accrochera derrière un train civil. Ce serait dommage de laisser tout ça ici. Et puis on a des uniformes pour tout votre peloton, si ça vous dit, on peut vous les laisser dès maintenant. L'automne arrive, ça peut pas faire de mal. J'ai des chinels magnifiques [manteaux de feutres cintrés à la taille] , et je crois même qu'il y en a un avec des galons de lieutenant-colonel... Parfait pour vous. 
+- Foutez-moi le camp sinon, mon peloton va mettre des trous dans vos chemises toutes neuves. À moins d'un ordre écrit de votre colonel, je ne surcharge pas mon train. 
+
+
+
+
+
+
+
+---
+
+# 43_On_a_tout_vu_à_Trostianets
+
+Trostianets, vingt-mille habitants, à quarante kilomètres de la frontière avec la Russie. Une fois passée la sidération d'une invasion qui semblait impossible parce qu'irrationnelle, on pensait que rien ne pouvait nous surprendre de la part des armées de Poutine. La deuxième guerre de Tchétchénie nous avait préparés aux bombes, aux exactions, à la mise en place de pouvoirs fantoches à la solde de l'ancien KGBiste. On n'a même pas été surpris de voir que des régiments tchétchènes participaient à l'invasion de l'Ukraine. 
+Et puis les images nous sont parvenues, tant d'images, et celles absurdes, filmées par des drones, de véhicules chargés de machines à laver, de téléviseurs, d'appareils de cuisine. 
+"Maman, c'est comme si on avait gagné à la loterie. Je t'ai pris un téléviseur." La mère, dans une conversation captée par les services de sécurité ukrainiens, demande d'abord si ça vaut le coup, si la télé est assez grande, et seulement ensuite : "Vous avez le droit ?"
+
+
+
+
+---
+
+# 44_Les_Chiens_Les_Loups_Les_Porcs
+
+Ogloblionski se tourne et aperçoit Vsévo et Micha qui s'approchent timidement. Après leur salut réglementaire, ils osent à peine demander à voir une carte, mais le lieutenant-colonel est ravi qu'ils s'intéressent à la situation militaire plutôt qu'au butin des vandales qu'il vient d'éconduire. Et puis demain, c'est peut-être l'un des deux qui devra diriger le train. À ses yeux, Gousseff et Stoliaroff ne sont déjà plus des cadets. En tant de paix, la promotion se fait à l'ancienneté, au temps qui passe, en tant de guerre, elle ne dépend que de la survie du supérieur hiérarchique. Vsévo est adjudant et Stoliaroff est sergent-chef. 
+- Regardez, dit Ogloblionski, en montrant un cours d'eau sur une carte de l'oblast de Tcherkassie. À l'ouest, ils sont bloqués par le Yatran, à l'est, par la Siniuka. Slachtcheff a déjà commencé l'encerclement avec le régiment de Simféropol. L'idée est de les repousser vers là. Son doigt a glissé jusqu'à la ville d'Ouman. Les hommes du général Skliaroff les y attendent et ont reçu l'ordre de les anéantir. Faut pas s'attendre à ce qu'ils fassent beaucoup de prisonniers. 
+- Mais... demande timidement Stoliaroff... s'il fait la jonction avec Peltioura ?
+- Haha, l'Armée Populaire d'Ukraine de notre chauvin de Petlioura ne s'entend pas avec l'Armée Insurrectionnelle d'Ukraine du bandit bandit anarchiste Makhno. 
+Et Ogloblionsky à ce geste si russe de repousser l'idée de la main, makhnout' roukou. 
+- Ce ne serait pas la première fois qu'ils passeraient un accord, ose Vsévo. 
+- Oh, non, ils ont même aujourd'hui un pacte de non-agression. Mais ce que ce naïf de Makhno ne sait pas, c'est que demain, Petlioura nous laissera traverser ses lignes, on a négocié avec lui. On va enfin pouvoir couper la retraite des Makhnovistes par l'ouest. Après demain, Skliaroff prendra Ouman, et on les écrasera par ici. 
+Ogloblionski montre un triangle formé par  trois villages : Kroutenkoié, à l'ouest, Rogovo, au nord, et Peregonovka, au sud-ouest. 
+- Ensuite, reprend-il, tout ce beau monde devrait nous rejoindre ici, à Bila Tserkva. Dénikine décidera alors si on pousse jusqu'à Lvov ou si on consolide les arrières de l'offensive vers Moscou. Mais d'abord, on doit gérer ces Cosaques du Terek qui sont à Fastov et veulent nous faire promener le fruit de leur pillage. Tiens, allez les voir et tâchez de savoir s'ils ont un ordre écrit de Belogortseff, leur colonel. Ces chiens se conduisent comme des porcs. 
+
+Des chiens, des porcs. Jamais des loups, jamais des sangliers. Pour humilier un homme, on le ramène toujours à une bête assez proche pour qu'on lui fasse porter notre laideur, notre lâcheté, notre propre saleté. 
+L'idéal сe serait d'avoir un double de soi-même, quelqu'un qui nous ressemble, mais qu'on puisse détester, qu'on puisse à travers lui se détester soi-même. Mais quelqu'un de différent quand-même pour qu'on puisse nier que la haine qu'on a n'est qu'une haine de soi, une rage, une impuissance. Un autre désigné pour qu'après le massacre, la paroisse toute entière retourne à ses affaires. Un autre qui vive là, mais ne soit pas d'ici, même s'il y est né, et son père avant lui, et le père de son père, ainsi depuis des siècles, un autre qu'on connait mais qui ne soit jamais "nous". Un autre. Toujours le même. 
+
+---
+
+# 45_au_côté_du_bon_dieu
+
+- Regarde, Vsévo, regarde, le mec, de dos, il a des bagues à tous les doigts. 
+- Il faut qu'on trouve un officier, répond Vsévo, et qu'on leur dise qu'à moins qu'ils aient un ordre écrit...
+- Eh, ben, quoi, demande Mikhaïl ? T'as envie de te mettre les Cosaques à dos ? C'est pas des chiens, c'est des loups, ils en mangent trois comme nous au petit déjeuner. 
+- T'as la trouille, Micha ? 
+- À main nue, je n'ai peur de personne, mais ces connards-là te dégainent un sabre comme tu te roules une cigarette, sans y penser, en parlant d'autre chose. 
+À nouveau, ils entendent le type à l'accent pointu de Pétersbourg. Ils se regardent sans dire un mot. Ils reconnaissent cette voix. Avec le même malaise, le même air chargé d'interrogation, ils pressent le pas et s'arrêtent juste derrière le soldat qui continue à parler avec les junkers qui gardent le train. 
+- Allez, les gars, laissez-nous charger un wagon, il y en aura pour vous aussi. Tiens, toi, laisse nous monter, et je te file cette montre, là, elle est magnifique, tu la prends, on charge deux trois bricole sur le train, et c'est tout. 
+Cette fois, cette façon de dire "et c'est tout," Vsévo et Micha demandent à l'unisson : 
+- Boris ?
+Le soldat se retourne, stupéfait, et, toujours d'une seule voix, ils s'exclament :
+- Kourakine !
+Ils ouvrent leur bras, l'attrapent, le repoussent. 
+- Mais on te croyait en Europe, à Paris, à Londres !
+- Les gars. Ah, vos gueules, regardez ça, Micha, t'as une barbe, toi, maintenant ? 
+- Mais raconte, qu'est ce que tu fous chez les Cosaques ?
+- On avait décidé de partir, on est parti, même, pour être franc. Mon père voulait rejoindre soit la Crimée, soit Novorossisk, et de là affréter un bateau pour Hull, en Angleterre. Et puis vers Voronej...
+Un souvenir porte une ombre sur le visage de Kourakine, mais il la chasse de la main. 
+- Allez, assez parlé des défaites du passé. Buvons aux victoires, buvons à l'avenir !
+- Qu'est-ce que tu veux qu'on boive, on est à sec, on n'a plus de tabac depuis deux jours, alors de l'alcool...
+- Ah, les galériens du train. Retrouvez moi après la soupe, on est de l'autre côté de la gare, j'ai de la vodka, de la bonne, hein, pas de l'alcool de patate, du grain !
+Lorsqu'ils le rejoignent, Boris Alxeandrovitch Kourakine ne les a pas attendus pour commencer à boire. 
+- Ah, vous voilà, les gars. Vous êtes en retard !
+- En retard, t'es marrant, toi, on n'avait pas dit d'heure !
+- Bah, je dirais que vous êtes en retard d'environ... Il porte la bouteille à ses yeux... vous êtes en retard d'environ une demi-bouteille !
+Autour de lui, les Cosaques rient bruyamment. 
+- Mais ne faites pas la gueule, il en reste assez pour nous tous. 
+Il sort d'un sac une deuxième bouteille, puis une autre. 
+- Allez, reprend-il, sortez vos quarts, soldats, que je les remplisse, et à ras-bord, vous allez vite nous rattraper. 
+- Où est-ce que tu as chopé ça ?
+Au lieu de répondre, Kourakine lève son verre, un beau verre ouvragé, et il leur lance : "Lé'haïm !", déclenchant l'hilarité générale des Cosaques. Vsévo penche la tête de côté, un geste de chiot qui cherche à comprendre une situation incongrue. 
+- Bah, on est allés secouer un peu les juifs de Fastov. 
+Un Cosaque se lève, bombe le torse : 
+- J'ai bien mérité quelques médailles, depuis le temps qu'ils profitent de nos terres. 
+En  guise de médailles, sa poitrine est recouverte de montres. 
+- Je me suis bien démerdé, poursuit le cosaque. Toutes celles-là sont en or, il doit y en avoir dix. (ref le don paisible)
+Vsévo et Stolia avalent leur vodka sans rien dire. 
+- Bah quoi, vous êtes jaloux, les cadets ? C'est vrai que vous vous faites un peu baiser, les gars du train. C'est nous qu'on rentre dans les villes, alors que vous ouvrez le terrain. Mais bon, nous, on les regarde dans les yeux, ces cochons là, on les arrose pas à cent mètres avec une mitrailleuse. 
+- Ouais, nous on prend les ponts, et vous vous attendez dessous qu'un civil passe pour lui piquer sa montre et son manteau...
+- Eh, doucement, monsieur Votre Excellence !
+Le Cosaque s'est levé, sa main est déjà à sa taille, sur la poignée d'un sabre. 
+- Allez, les gars, dit Kourakine. Vous vous fâchez seulement parce que vos verres sont vides. 
+Il verse à nouveau de l'alcool, et, pour apaiser les cadets, il porte un toast : 
+- Buvons à la croix de Saint-André !
+Les Cosaques se rebiffent. 
+- Eh, on n'est plus à Odessa, tu vois la mer, ici ?
+- Faites pas chier, les copains, ça fait des mois que je bois à la santé des Cosaques du Terek et des Cosques du Don, des Cosaques du Kouban et des Cosaques de tous les coins du monde, on peut bien faire plaisir à mes copains de l'Académie, non ? Je vous rappelle qu'on a tiré sur des bolcheviques bien longtemps avant vous, dès la prise du palais d'Hiver, hein ? 
+Le Cosaque à la poitrine couverte de montres lève son verre : 
+- Allez, à la croix de Saint-André et au Palais d'Hiver, qu'on reprendra avant que se termine l'automne !
+Il vide son verre et s'adresse directement à Vsévo. 
+- C'est pas des civils qu'on détrousse, c'est des juifs. Tu crois que les youpins ont eu pitié de nous cette année ? 
+- Ouais, reprend un autre, encore plus éméché, le juif Trotsky Bronstein, il a même inventé un mot, rien que pour nous : la décosaquisation. 
+- Ouais, ouais, Trotsky c'est une crapule, mais c'est pas tous les juifs. Et puis tous les bolchéviques sont pas juifs. Regarde Lénine ?
+- Lénine, c'est pire, c'est un Allemand. Les Allemands sont et seront toujours les amis des juifs. Le yiddish, c'est quoi, sinon de l'allemand de juif ? Les juifs, bolcheviques ou pas, ils en profitent à fond, de leur révolution. Avant, t'aurais jamais vu un juif gouverneur, policier, ou dans un bureau de poste. Maintenant, ils sont partout. 
+- Et puis de toute façon, ils ont toujours été du côté des Polonais, ou des Lituaniens, toujours prêts à défendre les domaines des papistes, dit un troisième cosaque. 
+- Faudrait savoir, les mecs, ils sont aux côtés des grands propriétaires ou aux côtés des bolcheviques ? 
+- Pour ceux de Fastov, je peux te dire une chose, c'est qu'ils sont au côté du bon Dieu, maintenant. 
+Kourakine se lève, farfouille dans un immense sac de toile de jute.
+- Messieurs, cette blague à tabac et un bocal de concombres marinés à celui qui chante le plus fort. 
+Puis, il se lève, et remplit à nouveau les verres. Pour Vsévo et Stoliaroff, l'indignation ce soir est soluble dans l'alcool, et fumer enfin leur fait tellement de bien. Un à un, les cosaques partent ou s'endorment sur place, malgré le froid de cette nuit de septembre. 
+
+
+---
+
+# 46_A_pas_aveugles_de_part_le_temps
+
+C'était pour moi aussi le début du mois de Septembre, et je marchais sur des œufs. J'avais fini par me dire qu'au delà de toutes les explications militaires, stratégiques, industrielles, ce qui avait scellé le sort des Blancs, c'était la raideur du message, de la vision, rien qui puisse pousser un paysan pauvre, un mineur de fond ou un ouvrier de fonderie à donner sa vie dans l'espoir que celle de ses enfants soit meilleure. Et surtout, il y avait l'antisémitisme. 
+Au contraire des journalistes qui se croient spécialiste d'un sujet sur lequel ils ont fait deux articles, les historiens, comme tous les vrais scientifiques, hésitent à se prononcer sur ce qui ne ressort pas exactement de leur domaine d'étude. 
+- Je ne suis pas une spécialiste du sujet, m'avait dit ma cousine Catherine Gousseff. Il vaudrait mieux que tu lises les travaux de Nicolas Woerth. Je ne suis pas sûre que les Blancs soient responsables du plus grand nombre de pogroms. Tu peux aussi lire les chevaliers mendiants, c'est un livre que Georges Oudard a écrit avec Dmitri Novik, au milieu des années vingt, après avoir interviewé un grand nombre d'exilés, je ne crois pas qu'ils fassent mention de pogroms. 
+
+L'historienne et la petite-fille de Vsiévolode Valerieviotch Gousseff, soldat de l'armée des Volontaires, semblaient se livrer bataille. 
+
+Alors j'ai lu les Chevaliers Mendiants, auxquels j'ai volé quelques éléments pour donner au Vsévo des archives familiales des couleurs, des étoffes, quelques reflets de vraisemblance. Le seul juif qu'on y croise est un commissaire soviétique - toujours cet amalgame- qui a réquisitionné pour son usage la maison de trois frères, soldats de l'armée des Volontaires, ne laissant qu'une petite chambre à leur pauvre mère. Quand les trois frères reviennent, il ne les fait pas fusiller sur le champ, comme s'il était trop lâche, mais charge des gardes de les amener au tribunal révolutionnaire le plus proche. 
+" Vous pouvez me remercier de ne pas vous faire fusiller sur place, bande de drôles ! Oust, les gardes. Encore dix verstes à vous appuyer. Conduisez-moi ça lestement à la ville. Vous reviendrez quand ils seront morts."
+
+Nicolas Werth, lui, a eu le recul suffisant pour interroger l'historiographie. Il a préparé l'édition française du Livre des Pogroms,  référence coordonnée par Lydia Miliakova au début des années deux mille. Dans un  article qui résume son travail [ référence revue de d'histoire de la shoah], il montre que toutes les forces en présence ont persécuté les communautés juives. 
+
+Nicolas Werth, comme ma cousine, comme moi, porte sur ses épaules le fardeau des descendants de Russe Blancs. Parmi les victimes de la terreur Rouge se trouvaient aussi des bourreaux, à l'exemple de Fedor Vinberg, un officier de l'Armée Blanche qui, une fois installé à Berlin traduit et édita le *Protocole des sages de Sion*.  Ce faux eut une telle influence sur l'idéologue nazi Rosenberg que certains historiens considèrent que la Shoah devint une des conséquences non programmées et non anticipées de la Révolution Russe. 
+
+On parle de sens du devoir, comme s'il y en avait un, unique, une seule direction. Mais le devoir de mémoire nous écartèle, d'un côté vers la fidélité filiale et de l'autre vers l'amour de la vérité. Nous marchons sur des œufs, à pas aveugles, doucement, doucement. 
+
+
+
+---
+
+# 47_dites_moi_les_gars_dites_le_moi
+
+- Oh, doucement, quand même, Boris Alexandrovitch, dit Vsévo à Kourakine qui sort une nouvelle bouteille. Il faut qu'on soit à l'appel demain, hein ? On est pas en permission, là. 
+- Quoi, doucement ? Il faut qu'on boive à nos parents. Que les miens reposent en paix et que Dieu accorde aux vôtres de traverser cette guerre, de retrouver la prospérité... et beaucoup d'annnééééeees. 
+Cette phrase rituelle des anniversaires précède toujours le chant traditionnel "Mnogaia Lieta", beaucoup d'années en slavon. Vsévo lève son verre : 
+- Za raditiélieï, aux parents !
+- Na zdarovié, Santé !
+Micha lance une note de basse, Vsévo reprend à la tierce, e t Kourakine, au lieu de prendre la quinte, se met à pleurer, d'un coup. 
+
+Comme si ce verre l'avait fait basculer dans une nouvelle sorte d'ivresse, il se met à parler de ses parents. Le train qui s'arrête, ce n'est même pas une gare, deux quais, un simple bâtiment. Son père, abattu sur le quai, délit de sale gueule d'officier. Sa mère et lui, menés à l'intérieur de la gare, en attendant. En attendant quoi ? Personne ne leur dit rien jusqu'à ce qu'on leur ordonne : " montez là, on vous amènera au soviet, vous serez jugés là-bas." Ils sont cinq ou six, attachés, par-dessus leurs bagages, à l'arrière d'un chariot. 
+Le paysan qui la conduit s'arrête, regarde Kourakine et sa mère parmi les autres prisonniers, des hommes, des soldats. " Je vais m'enfoncer dans la boue, moi, chargé, comme ça." Il coupe leurs liens, mais il fait non de la tête quand Boris tend la main vers la malle. Grâce à l'argent que sa mère a cousu dans un ourlet, ils finissent par rejoindre une autre ligne. Sans le père, ou à cause de leurs visages sales et crevés, on ne les embête plus et ils rejoignent Novorossisk. De là, sa mère peut embarquer, mais lui, il s'engage dans le régiment des Cosaques du Terek. 
+- J'ai tout fait après la campagne de glace. 
+Et il se tait. Longtemps. Mikhaïl et Vsévo roulent une cigarette.  Dans le noir, le silence, on ne voit plus que les braises des cigarettes qui rougeoient à tour de rôle. 
+- Alors aujourd'hui, seul Dieu peut nous juger. 
+Les braises du feu se recouvrent de cendre grise, il fait trop noir pour voir les verres, on se passe la bouteille, on boit au goulot, et c'est toujours aux lèvres de Boris Kourakine qu'elle passe le plus de temps. Stoliaroff se penche et souffle pour ranimer les braises, cherche un morceau de bois aux pieds d'un cosaque qui se met à ronfler. 
+- Et il nous jugera, reprend Kourakine, comme si un quart d'heure de silence ne les séparait pas de sa phrase précédente. 
+Il se tait. On entend à nouveau un glouglou de vodka. 
+
+" Qu'est ce qu'il nous reprochera le plus ? Le meurtre ou le pillage ?
+Tuer ceux qui ont mis à mort le Christ, le Tsar, la Sainte Russie, est-ce qu'il pourra nous le reprocher ? Je crois que j'avais honte, au début. Avant de les tuer, quand ils ouvraient la porte, et qu'on leur demandait de l'argent, comme si ça pouvait les sauver. Le mensonge, aussi. S'ils ne pouvaient pas en donner, alors on les torturait, parce qu'ils en ont toujours, en tout cas ils devraient. C'est ça, le mal, on aurait dû torturer les autres, s'ils avaient de l'argent, c'est bien la preuve qu'ils avaient pillé notre peuple, non ? Mais de toute façon, ça ne changeait rien, on les tuait aussi. À la baïonnette, pour économiser des balles. On les tuait alignés contre les murs de la synagogue, une rafale de Maxim. On les tuait enfermés dans leurs maisons en flammes. "
+Comme pour éteindre l'incendie, Kourakine boit, respire, boit encore. 
+"Et alors quoi ? Ils ont abattu mon père devant moi, parce qu'il était officier de l'armée du Tsar, et moi, j'aurais dû défendre ce gamin qu'ils ont forcé à pendre son père ?"
+
+Soudain, il se met à hurler. D'abord un long cri qui lui déchire la gorge, puis un autre, et après une dernière inspiration, un gémissement interminable, pareil à celui d'un mourant. 
+Il bascule, le corps toujours à l'équerre comme s'il était encore assis, mais l'épaule droite contre le sol. Puis il se recroqueville autour de la bouteille. Il cherche à boire, encore, mais la vodka s'écoule de sa bouche entrouverte sur le sol, coule vers les braises du feu et, seulement après avoir été réchauffée par elles, prend feu. Vsévo bondit, Micha attrape la bouteille, et Kourakine qui semble s'éveiller en sursaut reprend comme s'il ne s'était jamais tu. 
+"C'est les femmes. C'est ça qu'il ne nous pardonnera pas. Je vous jure que moi, je n'en ai touché aucune. Mais ils les ont violées. Pas toutes, comme ça, celles qu'ils attrapaient dans la rue. Je n'y étais pas, mais j'entends encore leurs cris. Ils s'entendaient de loin, pas besoin d'y être. Je les vois encore se débattre, mais je les ai pas touchées, impossible, et qui pourrait bander, mais je sens encore leur odeur. "
+Il arrache la bouteille des mains de Stoliaroff, la porte à sa bouche, et comme elle est vide, il la jette au sol où elle ne se brise même pas et roule un peu plus loin. Kourakine se penche en avant, il se met à vomir, et quand les spasmes s'arrêtent enfin, des sanglots les remplacent. "Je les ai pas touchées, les gars, hein ? Dites-moi que j'les ai pas touchées..."
+
+---
+
+# 48_j_ai_peur_jusqu_au_dernier
+
+Un écrivain, c'est un videur de boîte de nuit. Il se tient à l'entrée du livre et li dit : "toi, tu entres, toi, je crois que ça va pas être possible."
+Parce qu'on ne peut pas laisser entrer le réel tout entier. Le réel est inépuisable, et notre temps à nous, humains, lecteurs ou écrivains, notre temps et notre énergie nous sont comptés. 
+
+Pourtant, un livre où l'écrivain ne laisse entrer que l'intrigue, que le récit bien propre dont il a écrit la trame à l'avance, c'est comme une soirée de mauvais film des années quatre-vingt : que des jolies filles et des play-boys plein aux as. Ça sonne faux. Les soirées dont on se souvient, à la fin des années quatre-vingt, c'est celles où les mecs rentraient Stan Smiths aux pieds, le regard froid, celles où les filles assistaient en rigolant au ballet des Renault Douze sur le parking. Un livre, il faut que ça vacille, qu'il y ait quelque chose de sauvage, mais pas trop. Parce que le réel, à l'automne deux mille vingt-trois, il est entré avec une batte et une hache. 
+
+Fin septembre, je poursuivais ma lecture des articles de Nicolas Werth. Les théories enseignées dans les académies militaires à la fin du dix-neuvième siècles préconisaient de recenser les populations suspectes. En Asie centrale, les indigènes musulmans, notamment les tchétchènes. Sur les marges occidentales de l'Empire, les juifs et les Russes d'origine Allemande. Il était admis qu'en temps de guerre, il convenait des les expulser, les déporter, les neutraliser. 
+
+Comme un étudiant consciencieux, je notai que toutes les troupes se sont livrées à des massacres. Les troupes impériales, dès mille neuf cent quatorze : après tout le Yiddish est quasiment de l'allemand, la langue de l'ennemi. Les bolcheviques et les nationalistes ukrainiens : après tout les juifs administraient les biens des propriétaires polonais et lituaniens. Les armées de Dénikine : après tout, l'OSVAG, le département de surveillance et de propagande, l'a bien expliqué, sans le juif Trotsky pas de  Révolution. 
+
+Cet antisémitisme rendait un service supplémentaire aux anciens officiers tsaristes : il permettait de faire porter la responsabilité de la chute de la Russie à un corps étranger, un virus, un microbe et non au peuple Russe lui-même. 
+
+Mais l'histoire ne se répète pas toujours, ou alors avec des symétries étranges. 
+
+Le sept octobre deux mille vingt-trois, le Hamas a percé la barrière qui encercle la bande de Gaza et a massacré plus de mille juifs, décimant deux kibboutz et tirant sur la foule d'un festival de musique avant de s'enfuir avec plus de deux cents otages. Le réel venait de s'asseoir sur la poitrine du videur et de lui dire : "Je crois que ça va pas être possible."
+
+C'était même pire que les pogroms car les victimes, dont les parents ou les grand-parents avaient vécu un génocide, allaient servir d'excuse à la plus grande opération de nettoyage ethnique perpétrée par une démocratie. En un an, les forces armées israéliennes on tué plus de quarante mille palestiniens, dont près de quinze mille enfants. Ils ont touché quatre vint quinze pour cent des écoles touchées et déplacé plus de deux millions de personnes, à plusieurs reprises, dans des abris étroits, sans eau, sans nourriture, sans chauffage. 
+Les persécutés rêvent de devenir les persécuteurs. 
+
+Et nous sommes là, impuissants, inactifs, ankylosés par le conflit moral. Impossible de défendre le Hamas, impossible de défendre la réponse d'Israël. Incrédules, comme devant tous les crimes de masse. Sidérés. Un mort, c'est une tragédie, cinquante mille, c'est une statistique. 
+
+Après des mois de paralysie mentale, l'horreur c'est qu'on s'habitue à l'horreur. On continue à vivre, on se remet à fonctionner, on tente de métaboliser le présent indigeste, de chercher si, au moins, au cœur de cette graisse répugnante, il n'y aurait pas de la fibre, du sens, quelque chose à en sortir, quelque chose pour s'en sortir, un pattern, une leçon, même si on sait bien que savoir n'empêche pas que le pire se répète, encore et encore, aux mêmes endroits, Palestine, Balkan, ailleurs, partout. 
+
+Étrangement, le motif qui se dégage de ce fond uniforme d'horreur, c'est celui d'une morale immanente qui n'a pas besoin d'être définie parce que tout le monde la ressent.
+
+Si je crois le général Dénikine quand il dit s'être opposé aux pogroms, c'est parce qu'il ne se revendique pas de valeurs humanistes, illusoires en temps de guerre, mais qu'il explique benoîtement que les massacres contribuaient à la décomposition morale de l'Armée Blanche, amoindrissait la discipline et précipitait donc la défaite. 
+
+Derrière les massacres, il y a toujours une peur, la peur existentielle de disparaître. La peur qu'il est impossible de faire, c'est celle de notre illégitimité : Purges Staliniennes, Holocauste, Sétif, Srebreniça, Boutcha, plus on lève haut le drapeau, plus gros sont les Z qu'on peint sur ses blindés, plus on attaque les pédés et les trans, les arabes et les juifs, plus on crie, plus on tue et plus on dit : " J'ai peur, je sais que je suis du mauvais côté de l'histoire, mais je ne me laisserai pas faire. S'il faut les tuer jusqu'au dernier pour continuer à vivre ma vie injuste plutôt que de changer, plutôt que de leur rendre leur terre, de les laisser prier qui ils veulent, aimer qui ils veulent, gagner autant qu'ils le méritent, alors, oui, jusqu'au dernier, je les tuerai."
+
+
+---
+
+# 49_Parfois_l_attaque_et_parfois_le_repli
+
+Les ordres sont clairs : jusqu'au dernier, pas de prisonniers. La veille, Kourakine a levé le camp sans oser recroiser le regard de ses anciens camarades de classe. Avec son régiment de Cosaques, il a rejoint les deux régiments d'infanterie qui s'avancent vers Peregonovka. C'est là que se massera le gros des troupes blanches. Les Cosaques regrettent un peu de n'être que les rabatteurs dans cette battue infernale. Ils doivent acculer les Makhnovistes qui tenteront alors, comme d'habitude, de faire retraite vers l'ouest. Petlioura les a trahis et a laissé passer le général Skliaroff, qui, déjà, s'empare de la ville d'Ouman au nord-ouest. La nasse va pouvoir se refermer sur les partisans de Makhno. Mais ce mouvement de troupes a agrandi les mailles du filet, écartant les troupes de Skliaroff de celles du régiment de Simféropol et laissant un passage entre Ouman et Peregonovka. Les anarchistes s'y engouffrent, et ils occupent les hauteurs d'un plateau à l'Est du village de Kroutenkoié. 
+
+Une fois, deux fois, trois fois, ils livrent des escarmouches, parfois l'attaque et parfois le repli, incapables de percer le flanc du régiment de Simféropol, dont les soldats commencent pourtant à s'épuiser. "Tenez encore un jour !" leur répond-on quand ils alertent sur leur état, " nous les écraserons demain matin."
+En effet, les insurgés reculent, font mine de retraiter, mais dans la nuit du vingt-cinq au vingt-six septembre mille neuf cent dix-neuf, le gros des troupes de Makhno se met à marcher vers l'est. Ce ne peut être qu'une ruse car ils marchent au devant du gros des troupes des Volontaires. Et de fait, quand ils atteignent le village de Peregonovka, ils sont arrêtés par les Blancs qui attaquent frontalement. Les anarchistes perdent du terrain. Il faut mobiliser tout le monde. Les femmes, les adolescents sont armés à leur tour, mais rien à faire, ils reculent. 
+Ils ne savent plus quoi faire. Est-ce qu'il faut tenir ? Est-ce qu'il faut fuir malgré les ordres et risquer de se jeter dans la gueule du loup, le général Skliaroff qui les attend à l'Ouest ? 
+Aucun ordre ne vient. Makhno est invisible. On l'a vu cette nuit partir par un ravin. A-t-il fallu qu'il fuie pour que le mouvement survive à l'inévitable défaite qu'apporte l'aube qui pointe ?
+
+Mais soudain les soldats blancs se retirent. La cavalerie de Makhno a débordé les flancs de l'adversaire. Les officiers blancs comprennent la manœuvre et organisent la retraite. La panique s'empare des hommes du rang, épuisés. Une minute plus tôt ils croyaient tenir la victoire et mainteant c'est la débandade. 
+Un des régiments de la cavalerie anarchiste poursuit les blancs en fuite, une autre coupe par une ravine et les prend à revers. 
+De l'autre côté de la Sinukha, Boris Kourakine et son peloton de Cosaques voient arriver ce qui reste du régiment de Simféropol. Les soldats abandonnent leurs mitrailleuses et tentent de traverser la rivière. Mais une pluie d'obus s'abat d'une berge à l'autre. Il n'y a plus de surface, plus de lit, plus de gué, l'eau glacée est partout, dans les yeux, dans les gueules des chevaux qui s'étouffent. On ne traverse pas. 
+Impuissants sur la berge d'en face, Kourakine et les siens suivent la débâcle vers le sud : à Ternovka, on pourra traverser. 
+Mais la cavalerie makhnoviste les rattrape, et sabre à tour de bras. Seule une centaine d'hommes arrive à traverser. Ils laissent derrière eux vingt canons, cent mitrailleuses et six cents soldats, dont cent vingt officiers. Makhno, lui, fait des prisonniers. 
+
+Le lendemain, l'armée insurrectionnelle a déjà progressé de cent kilomètres. 
+
+Sur la carte dessinée par mon oncle, la ligne du parcours de son père referme son étrange boucle : un mois plus tard Makhno reprend Ekaterinoslav, et la ligne plonge à nouveau vers la Crimée. 
+
+
+---
+
+# 50_se debarrasser_de_soi_meme
+
+- Est-ce qu'il délire encore ? 
+- Non, pour le moment, il dort. 
+- Vous croyez qu'il va tenir ? 
+- Difficile à dire. Le médecin dit qu'il a ses chances. Il est trop jeune pour avoir fait quatorze, il n'a pas de blessures et il n'a pas été gazé comme les plus âgés qu'on a eus le mois dernier.
+- C'est vrai qu'il est jeune. Seulement dix-sept ans...
+- Dix-sept ans ? Qu'ils m'envoient des jeunettes comme toi, je veux bien, mais à quel âge a-t-il a pris les armes, lui, quinze ans ? 
+Vsévo entend les infirmières parler de lui, mais il est incapable de réagir. Il ne sait pas où il est. Un hôpital, sûrement. Non, pas un hôpital. Un lazaret. Et pourtant il n'est pas blessé. Quand la fièvre baisse un peu, la honte prend le relais. D'abord celle de ne plus être avec le régiment. Où est Stoliaroff ? Et Kourakine, qu'est-il devenu après Peregonovka ? 
+La retraite précipitée, les aller-retours pour aller chercher les blessés, les déposer dans un hôpital de campagne, et revenir le lendemain pour les déplacer à nouveau car l'ennemi avance plus vite qu'on ne recule. 
+Le lendemain de la déroute de Peregonovka, l'armée insurrectionnelle avait déjà progressé de cent verstes. Alors on déplace les blessés jusqu'à Ekaterinoslav, mais ça ne suffit pas. On dit que déjà, Makhno s'approche de la ville. 
+On charge on décharge on s'arrête on roule. On tire. On fait passer des gens. On fait passer des armes, on sauve des munitions, on tire sur des gens qui en veulent à nos munitions. C'est ça la vie.  
+
+" Une fatigue soudaine s'était abattue sur nous. Le courage, mort. Le moral, mort. La déroute qui sème la peur se glissait dans nos rangs. L'automne sentait l'hiver. Le froid, la pluie, la boue, tout était contre nous. On battait les rouges et on reculait toujours. Makhno et ses bandes de voleurs et d'anarchistes soulèvent le sud. La population les soutient. Le barbare promet : plus de Blancs, plus de Rouges, plus de gouvernement, la paix, les terres... Moins vingt-et-un degrés tous les jours. Les chevaux tombent, gonflent explosent. Cadavres dépouillés par les vivant. La faim, le froid et cette vache de typhus." [Extrait des Chevaliers Mendiants, G. Oudard et D. Novik, Plon p 133 à 137]
+
+Le typhus ! C'est ça, se rappelle Vsévo. Trop froid pour enlever les vêtements, et de toutes façons, toujours sur le train, jusqu'à l'épuisement. Les poux, les morpions. " Faut pas gratter, sinon tu t'arraches la peau et tu chopes le typhus... "
+
+Faut pas gratter, va te faire foutre, mon lieutenant, t'en as d'autres des conseils comme ça ? Faut pas prendre une balle sinon tu chopes une blessure ? Faut pas mourir ? Faut pas choper la fièvre parce que sinon tu te mets à délirer, faut pas dire de bêtises ?
+Au moins avec la fièvre Vsévo ne se gratte plus. Mais la fièvre... Quelle fièvre !
+- Regardez, il s'agite à nouveau. Il est brûlant. 
+- Écoute, petite, mets-lui une serviette sur le front, bien fraîche, ça les soulage, et passe à autre chose. Demain, on en aura cent de plus et il faudra les mettre à deux ou trois par lit, alors crois-moi, çui-là n'est pas à plaindre. 
+- Il m' appelée Tatiana, tout à l'heure, et m'a demandé "où est papa ?"
+- Il t'a prise pour la femme de son père. Elle était infirmière au front en quinze-seize. Et son père, c'est un colonel. Il a fait Port-Arthur avec mon oncle.
+- Le monde est petit. 
+- Trop petit pour tout le monde, visiblement. Faut toujours qu'ils s'écharpent. Tous les nobles passent par l'armée, c'est pas étonnant qu'ils se croisent d'une guerre à l'autre. 
+- Attention, il va vomir encore. 
+- Tiens, le seau. Attends, il n'a plus rien à vomir, faudrait le faire boire un peu. 
+- Je déteste quand ils vomissent. 
+- C'est notre boulot, ma chérie. 
+- Non, c'est pas ça, ça ne me dérange pas d'essuyer. Mais s'ils ne gardent rien, ils se dessèchent, regardez, sa langue, ses lèvres, gercées, s'il continue...
+- Ah ben voilà, il veut encore causer. 
+- Papa ? Papa ? 
+- Repose-toi, Vsiévolode Valérievitch, tu parleras à ton père quand tu pourras tenir debout. 
+- Mais enfin, merde, je suis sous-lieutenant, j'ai quand même le droit de parler à mon père ? Et où est Ioufan ? Il faut aller chercher les fusils dans la vigne, il y a des Rouges partout...
+Il essaie de s'asseoir, du moins c'est ce qu'il croit, mais il soulève à peine sa tête. 
+- Du papier, je veux du papier. Micha, où est Mikhaïl Iakovlevitch ? Si mon père refuse de me recevoir, je vais au moins écrire à maman !
+- Je préfère quand ils délirent à haute voix que quand ils vomissent. Quand ils se taisent, après, et qu'ils gémissent, on sent que... Enfin, j'ai toujours peur que ce soit la fin...
+- Écoute, je sais que tu commences, qu'il faut t'habituer, mais... Essaie de le faire boire un peu et ensuite il faut faire la toilette des suivants....
+- Chère maman... Vous notez ? Qui note, Mikhaïl Illitch ? Chère maman... Dans mes souvenirs, maman...
+- Qu'est-ce que je fais, je note ce qu'il dit ? Mais on ne saura pas où l'envoyer....
+- Ecoute, ma chérie, je sais, c'est dur, tu n'as pas encore l'habitude. Mais le mois dernier, on a eu mille malades, rien qu'ici, et dans notre aile, sur les trois étages, on en a quoi, quatre ou cinq cents ? Il y en la moitié qui meurent ma chérie. Sinon les trois quarts. Alors tu peux pas t'attacher, prends un quart d'heure s'il le faut, mais tu peux pas t'attacher. 
+- La guerre, ce sont des déplacements interminables, dit Vsévo. Les marches, au printemps, pataugeant dans la boue. Le crachin est fin et tiède...
+- Tenez, buvez un peu...
+- Il est trop agité, ma petite, trempe plutôt un linge propre dans la carafe humecte lui les lèvres. Tu le feras boire vraiment quand il sera calme. 
+- ... Tout est calme...
+- Ah, tu vois, petite, s'il répète un peu ce qu'on dit, c'est qu'il est encore en contact avec la réalité, d'une manière ou d'une autre. Et arrête de pleurer, tu vas faire peur à tout le monde. Je te dis, celui-ci, il va s'en sortir, il verra le printemps reverdir...
+- Les arbres sont déjà verts, les champs de blés verdissent, continue Vsévo.  
+- Tu vois, ma petite ? Allez, tiens-lui la main, je reviens te chercher tout à l'heure. Dès que tu trouves le courage, tu iras changer les draps de l'autre aile, c'est jour de lessive, ça te fera du bien de marcher un peu. 
+- ... Je marche lentement, me penchant vers l'avant, et soutenant le fusil qui me scie l'épaule. Derrière moi, une charette avec les munitions, et puis l'ambulance. 
+- Oui, l'ambulance vous a amené ici, Vsévolode Valérievitch, mais vous allez vous remettre sur pied, vous allez rejoindre votre train...
+- Beaucoup de gares surviennent. Elles sont vides sans hommes, sans wagons. Le bâtiment en pierre et le château d'eau surgissent de la verdure mouillée des arbres. En général, l'offensive débute le matin et par une chaude journée. Je ne me souviens pas d'une quelconque offensive sous la pluie, ou l'hiver...
+- Là, Là, il n'y a plus d'offensive, ne remuez pas la tête comme ça, vous ne voulez plus de la serviette ? Je vais la passer sur vos pieds et commencer une toilette par le bas du corps. 
+- Mes pieds sont mouillées par la rosée. J'arrache des brins d'herbe et je les mets dans ma bouche. Je n'ai ni peur ni peine, seulement chaud. 
+- Oui, vous êtes brûlant, mais dehors il fait froid. On reste emmitouflé et c'est comme ça qu'on... Oh pardon, j'ai renversé le seau...
+- Ensuite commence la canonnade. Les obus passent de plus en plus souvent. Je n'ai pas peur, j'ai seulement envie d'arriver au village où, théoriquement, se trouvent les positions de l'ennemi. J'arrache des brins d'herbe de plus en plus souvent. Je les ronge nerveusement. Bien que je porte une mitrailleuse sur l'épaule, je ne ressens pas la charge, j'ai seulement soif. 
+- Ah, laissez-moi vous faire boire, maintenant, là, penchez un peu la tête, voilà, allongez-vous. 
+- Lorsque la colonne se couche, je me jette sur l'herbe, je penche ma tête vers le sol et je sens l'odeur de la terre mêlée à celle de la verdure. Je me rappelle l'instant où j'ai été blessé... Des shrapnels éclataient à chaque minute. J'avais du sang à la main droite, alors, seulement, ai-je deviné que j'étais blessé, car je ne ressentais sinon aucune douleur. J'ai pensé qu'il fallait tomber et je me suis agenouillé, même si je n'en ressentais pas la nécessité. J'étais très content d'être blessé. Pas parce que ça me permettait d'éviter le combat, mais parce que je me débarrassais de la lourde mitrailleuse qui me sciait l'épaule sans pitié. 
+- Ah, Gallia Borisevna, vous êtes déjà revenue...
+- Vous êtes encore à son chevet ? Il faut aller changer les draps, je vous ai dit que...
+- Oui, je sais, pardon, mais il croit qu'il parle à sa mère. Je ne veux pas qu'il croie que sa mère l'abandonne alors... Tant qu'il a quelqu'un à côté de lui et qu'il parle, au moins, il reste conscient...
+- Allez changer les draps, je vais rester là, un moment, on va dire que c'est un peu calme ce matin par rapport à ce qui nous attend demain. Ah, il s'y remet déjà, allez, filez ma petite...
+- Nous étions sur des charrettes de paysans, changeant souvent de direction. Nous avions tous peur d'arriver chez les bolcheviques...
+- Allons, allons, ça, c'est quand on vous a amenés, ici, mais vous et le Stoliaroff qui vous a accompagné, vous étiez plus souvent sur votre train blindé qu'avec l'infanterie, non ? 
+- Le train... Nous étions sous le feu d'un train blindé alors que nous nous trouvions dans la maison d'un garde-barrière. On avait apporté un officier blessé au ventre et il était en train de mourir. Je suis sorti sur le quai. On ne sait pourquoi, mais je me suis senti joyeux et j'ai souri. À cause de mon indépendance ? Seul et au front... L'officier aussi est sorti sur le quai. Il souriait aussi. En ce temps-là, ni les blessés ni les tués ne me faisaient pitié, je ne ressentais pas les douleurs d'autrui. 
+- Ne vous en faites pas, c'est comme moi. Aujourd'hui, la petite pense que je suis sans cœur, mais d'ici une semaine ou deux, elle comprendra. On n'a pas le choix, c'est cruel, mais faut se réserver pour ceux qui ont une chance. Si elle passait dans l'autre aile du bâtiment, elle verrait ceux qu'on entasse à trois par lit. Mais vous, jeune homme, je ne crois pas que vous soyez condamné...
+- Il m'est arrivé de voir comment on fusillait. Et d'y participer. Il a fallu... Avec beaucoup de curiosité et sans aucune pitié, je tirais sur le condamné. Ensuite, après avoir tiré, mon corps et mon âme étaient pris par un tremblement nerveux à cause de la conscience de mon propre tort. 
+- Pour le moment, les convulsions, c'est la fièvre. Katia, venez, il va finir par convulser, apportez encore de l'aspirine. 
+- Il ne va pas s'en sortir, Galia Borisevna ? 
+- Vous dites n'importe quoi. On verra. Mais il a toutes ses chances. Faut juste espérer qu'il tremble à cause de la fièvre...
+- Quoi d'autre ? 
+- Ceux qui sont en garnison dans des villes, à l'arrière, ils cherchent à oublier, à se distraire, avec tout ce qu'ils trouvent. Et croyez-moi, ils trouvent pas mal de choses. Je ne sais pas si ce sont les anglais qui ont apporté ça, s'ils ont rapporté ça du front, mais on dirait qu'à Kharkov, tout le monde prend de la cocaïne. 
+- C'est qu'il en ont des choses à oublier, Galia Borisevna. 
+- Et encore, celui-là, il ne parle que des combats, vous avez de la chance. 
+- De la chance ? 
+- J'ai entendu bien pire. Des scènes de pillages hideuses, repoussantes. Quand ils batent en retraite, ils n'ont plus rien à perdre. La guerre civile, c'est de la boue dans la tête et le cœur. Au moins, le typhus, quand on s'en débarrasse, c'est fini. Mais pour se débarrasser de la boue, faudrait pouvoir se débarrasser de soi-même. 
+
+---
+
+# 51_Encore_la_Crimée
+
+Dans ce train, pour la première fois depuis novembre mille neuf cent dix-huit, Vsévo est juste un passager. Il n'est pas guéri, mais il n'est pas mort, contrairement à celui qui gît à ses côtés, et que des soldats jettent par la porte ouverte du wagon à bestiaux. 
+
+Chaque fois que la porte s'ouvre, il se demande si c'est son tour. Il sait qu'il n'aurait aucune force pour se défendre. Parfois, il croit reconnaître un paysage et cela assombrit son âme : on perd tout le terrain qu'on a gagné. A chaque cahot un peu trop fort son instinct cherche la barricade, la voiture ennemie, mais ce n'est que la voie ferrée qui se dégrade. Le visage de Micha apparaît parfois. Quand Vsévo n'a pas la force d'ouvrir les yeux, c'est juste sa voix qui lui parvient. "On retrouvera le régiment bientôt. Demain, si tout se passe bien." Mais tout ne se passe pas si bien puisqu'on voyage encore une semaine, puis une autre. Et Micha en colère, s'adresse à quelqu'un d'autre : "écoute-moi bien, moudak, parce que je ne le répéterai pas. Si tu t'approches encore de lui, c'est toi que je jette sur la voie. Si t'as peur qu'il te refile le typhus, t'as qu'à pas t'approcher. Si tu crois que j'hésiterai, essaie."
+Une voix marmonne : "on verra à la prochaine gare," mais Stoliaroff ne répond pas et s'adresse à Vsévo. "T'inquiète, il n'approchera plus. Ces salopards volent les provisions des malades qui s'endorment et les balancent dehors. Ah, il est beau, le peuple russe. "
+Un matin Vsévo se réveille sans ce brouillard mental qui l'enveloppe depuis des semaines. C'est un lit de camp.
+- Eh ben, y a pas moyen de se débarrasser de toi ! Tiens, mange ça. Au moins, ici, il y a de quoi bouffer. Faut que tu te requinques, on repart dans deux jours. 
+Dans la défaite, le plus dur est de maintenir la cohésion. On se retrouve par petits groupes, souvent séparés de sa compagnie, et on essaie de donner du sens à la catastrophe qui se déroule. 
+- Dénikine a eu tort de monter vers Moscou. 
+- Tu l'as dit, il aurait mieux valu faire la jonction avec Wrangel à Tsarytsine. 
+- Ensuite avec Koltchak, à l'est et ensuite seulement resserrer l'étau sur Moscou. 
+- Facile à dire maintenant, mais si Wrangel avait continué à monter après Tsarytsine, au lieu de ménager ses Cosaques, on y serait déjà, à Moscou. 
+- Avec qui voulais-tu qu'il monte  ? T'as su les pertes à Tsarytsine ? S'il avait pu, il aurait attaqué, personne ne sait motiver ses troupes comme Wrangel. Il fait pas des discours interminables comme Dénikine, lui. 
+- Ah, ça, l'éloquence du baron noir, la toque, le sabre... la noblesse te  manque, hein ? 
+- C'est vrai qu'il est encore monarchiste, lui. Mais Dénikine a eu beau promettre des réformes, on peut pas dire qu'il ait séduit les foules...
+Stoliaroff prend Vsévo par le coude et le soutient alors qu'ils s'éloignent. 
+- Perds pas de temps avec ces conneries, tout le monde bavasse, parce que la colère c'est toujours mieux que la trouille. Mais la vérité, c'est qu'on est dans la merde. Il faut pas qu'on reste en Crimée, faut qu'on retrouve le gros des troupes à Novorossisk ou à Sotchi, certains disent même qu'il faut qu'on aille en Géorgie, histoire de voir si les Anglais nous lâchent pour de bon. 
+- On est en Crimée ? 
+- C'est vrai que tu n'as pas trop pris le temps de regarder le paysage depuis que je t'ai sorti de ton mouroir. 
+
+---
+
+# 51_la masculinité_toxique_a-supprimer
+
+(Chapitre à supprimer ?)
+
+Sur le mur en face du lit il y avait un calendrier pendu de côté, la reliure horizontale délimitant les jours du mois en court, au-dessus, et en-dessous la reproduction d'une peinture de Nikolaï Vladimirovitch Staël Von Holstein. Peut-être une plage, la mer, le ciel, peut-être simplement des à-plats de couleurs. Lorsque la fièvre dépassait quarante degrés, les à-plats semblaient onduler, se détacher, les couleurs plus sombres s'éloignaient, les plus claires venaient au premier plan et le tableau devenait un labyrinthe en trois dimensions duquel il était impossible de sortir. 
+Ce n'était pas le typhus, c'était le palu, et j'avais vingt-six ou vingt-sept ans. Mes collègues du centre de recherche agronomique de Saint-Louis me disaient : 
+- Mais non, c'est pas le palu, à chaque fois tu te relèves au bout d'un jour ou deux, tu serais cloué au lit une semaine. Ça doit être des insolations. 
+Comme personne ne savait combien de temps durerait ma mission, on m'avait trouvé un petit appartement qu'on louait à un médecin colonial à la retraite qui n'avait jamais pu se ré-acclimater à la vie en France. Il était encore plus catégorique. 
+- Il n'y a plus de palu à Saint-Louis depuis que j'ai fait drainer les marigots. Ça doit être une intoxication alimentaire. Vous, les jeunes métropolitains, vous ne supportez que les plats stérilisés. 
+À chaque nouvelle crise, mes collègues trouvaient une autre cause à ce qui était pourtant bien une nouvelle crise de palu. La fièvre chaque fois,  chaque mois, me rendait prisonnier, d'une nouvelle reproduction de Nicolas de Staël. 
+
+J'aimerais pouvoir écrire que travailler pour le centre international de recherche agronomique pour le développement résultait de choix réfléchis, que j'avais suivi la voie que mon oncle Vsiévolode Vsiévolodovitch avait tracée pour moi. Je voudrais dire qu'il avait toujours su qu'il ferait une école d'agronomie parce qu'il avait en tête qu'une des causes les plus importantes de l'effondrement du régime tsariste avait été l'absence de réelle réforme agraire. Mais oncle Lala avait d'abord passé un an à la faculté, pas bien sûr de ce qu'il voulait faire. Et puis l'agronomie, dans l'immédiat après-guerre, en quarante-sept c'était comme le numérique aujourd'hui : l'avenir. Vsévo lui avait :  "Si tu veux ça, alors, tu t'inscris à Saint-Louis, là au moins ils te feront bosser." Et quand il est allé s'y inscrire, on l'a reçu avec un :
+
+- Et vos parent, où sont-ils ?
+- Mon père travaille.
+- Ah bon ? Et alors ? Quand il avait votre âge, quelqu'un est bien venu le présenter au lycée, non ? 
+- Quand il avait mon âge, monsieur, mon père commandait une compagnie du train blindé et il était lieutenant. Si vous y tenez vraiment, je peux lui demander de venir vous l'expliquer en face !
+Je n'ai découvert ces histoires qu'il y a une douzaine d'année, quand j'ai commencé à préparer ce livre. La vérité c'est que ma présence au Sénégal n'était que l'aboutissement du parcours aléatoire d'un jeune homme tentant désespérément d'être à la hauteur d'un héritage familial mythique et écrasant. 
+
+Je suis né au milieu des années soixante-dix et ni la carrière militaire ni une carrière professionnelle dans le privé ne semblaient répondre à l'impératif familial : servir. 
+Servir ne suffisait d'ailleurs pas. La parabole des talents, répétée à l'envi, avertissait clairement que celui qui ne tirait pas le meilleur de ce qu'il avait reçu serait châtié. Le châtiment n'était pourtant pas si terrible : juste le regard déçu de mes parents. "Gâcher, toujours gâcher."
+
+Servir ET briller, tout en restant modeste. La seule solution que j'avais trouvée à ce système d'équation et de contraintes était de travailler pour la recherche publique. Et comme je n'étais pas assez intelligent pour faire de la physique quantique ou du droit international, je faisais de la modélisation des systèmes d'élevages, en me faisant croire que c'était quand même important. Je me racontais, comme d'autres avant moi, que la technique ferait disparaître la faim dans le monde, et par conséquent les guerres et les dictatures . Rien que ça? 
+Après n'avoir réglé ni la faim ni les tensions ethniques entre agriculteurs wolofs et pasteurs peuhls du nord du Sénégal, je fus envoyé à l'Île de la Réunion où on attendait de nous que nous réglions à la fois les problèmes de pollution azotée, de revenus paysans et de réchauffement climatique. La vache a deux sous-produits, le lait, et la bouse...
+À ma grande surprise, une partie de ce qu'on faisait se révélait utile pour les éleveurs. Nous mettions en œuvre une filière de compostage. Mais qu'est-ce que ça pesait face à un grand-père résistant et un autre combattant de l'Armée des Volontaires ? 
+
+Je n'étais pas le seul de ma génération sans guerre à vouloir prouver mon courage physique. 
+
+On nous trouvait à l’épaule des vagues qui déferlaient sur le corail tranchant, en équilibre instable sur des planches fragiles et dérisoires. On nous trouvait à la sortie des lacets en épingle à cheveux sur les routes de montagne, une main gantée sur le bitume et l'autre accrochée à un skate qui dérapait, une roue dans la ravine. 
+
+Mais ce n'était jamais assez, ça ne prouvait jamais qu'on aurait été valeureux. Il fallait que la mort soit plus proche encore, qu'on puisse penser : "Bon, moi aussi j'aurais su couvrir mes frères d'armes dans la fureur d'une bataille."
+
+Parfois le corps disait : "ça suffit, les conneries. Je l'ai vue, moi, cette ombre allongée du requin dans l'eau transparente qui se lève. Je l'ai senti, le craquement quand la lèvre de la vague s'est abattue, épaisse, sur le frêle pain de mousse de la planche."
+
+Et pourtant, on nous trouvait sur le tarmac d'un petit aéroport côtier, trottinant pour faire passer le sang du cerveau aux guibolles, pour que la terreur ne nous empêche pas de monter dans l'avion pour nos premiers sauts en parachute. J'étais le plus lourd, assis par terre dans le Pilatus qui s'élevait toujours plus haut. L'instructeur ouvrait la porte, pour voir si on était aligné à la zone de saut. La première fois, mon corps comprit que j'allais le jeter dans le vide. Si moi je faisais confiance à la sangle qui me reliait au Pilatus pour ouvrir mon parachute automatiquement, lui trouvait qu'on était bien assis, et que si on avait pu rentrer mes jambes que le vent de l'hélice entraînait vers l'arrière de l'appareil, ce serait une bonne idée. Sur le T-Shirt de l'instructeur, que le vent faisait onduler à toute vitesse, on pouvait lire : "I love the smell of jet fuel in the morning." Ce n'est pas le courage qui me fit sauter. Si je ne sautais pas, les autres ne pourraient pas sauter, et c'est ce sens du devoir absurde qui me fit basculer dans le vide. Ensuite, l'adrénaline, c'est addictif et on sourit quand on entend : 
+
+" Bon, on a un avion de ligne qui est arrivé avec une heure d'avance, on va devoir attendre en l'air qu'il se pose. La bonne nouvelle, c'est que quitte à voler, on va continuer à monter. Vous allez vous cailler mais vous aurez quatre mille mètre de gaz en dessous de vous, deux minutes de chute libre, les gars. Vous endormez pas pour autant, et arrêtez vos conneries d'ouvrir tardivement comme hier, hein ?"
+
+Mais ce n'était pas du courage, parce que passé la peur du premier saut du weekend, l'adrénaline réclamait son dû. Il ne s'agissait plus de prouver sa valeur, juste de ressentir quelque chose à nouveau. Entre deux sauts, la vie normale, la vie civile avait-on presque envie de dire, ne suffisait plus. 
+Malgré les genoux en compote, les vertèbres écrasées, juste ressentir quelque chose. 
+
+Alors après, quoi ? Sauter d'une falaise ? D'un pont ? 
+Mais sans une cause valable, qu'est ce qui distingue le courage de la virilité imbécile, de la masculinité toxique ? 
+
+En tout cas c'était l'avis du psychologue. Celui là même qui m'avait dit que prendre racine quelque part n'était pas forcément trahir, que l'exode n'était pas une valeur en soi. 
+
+Lorsque l'avion qui me ramenait en métropole accéléra sur la piste, même si je savais que cette fois, personne n'ouvrirait la porte en plein vol, personne ne me hurlerait pour couvrir le bruit du moteur " UN, DEUX TROIS, GO", je ressentis la même peur qu'assis sur le plancher du Pilatus, la peur du corps à qui on demande d'aller contre sa nature, mais une peur amplifiée par un atroce sentiment d'impuissance. Je n'étais plus un parachutiste, j'étais un simple passager. 
+
+
+---
+
+# 52_La_mort_au_bout_du_fil
+
+Le monde avance trop vite et j'écris trop lentement. Il y  déjà plus de dix ans que j'ai eu les premiers entretiens avec mon oncle. Un an après la mort de mon père. Poutine venait d'envahir la Crimée et j'évitais le sujet avec soin. Je n'avais pas le courage de demander à cet homme de près de quatre-vingt cinq ans de préférer la justice à son père. La maison de Théodosie, le domaine de Stryï Krym étaient sans doute les derniers endroits où son père s'était senti chez lui. Surtout que Lala me racontait comment, après un repli en Crimée, Vsévo avait rejoint les troupes de Dénikine regroupée à la frontière du Caucase. 
+
+"En 20, ils avaient été sur un Katiev,  Tu vois ce que c'est ? Une espèce de bateau." 
+
+Mon oncle raconte les choses sans détour, sans détail, comme si c'était un souvenir de vacances.  
+
+"Ils avaient été fait prisonniers par les Géorgiens. Ils avaient été traînés sur la côte du Caucase. À l'époque, la Géorgie, c'était des menchévistes, tu vois ?"
+
+Chaque page de nos entretiens entraîne des heures de recherche bibliographiques pour recouper, préciser, confirmer. Mais là, Katiev, ça n'existe pas. J'ai beau chercher Katieff, Katiev, Catiev, rien. 
+
+J'exhume le fichier audio, je le retraite encore pour filtrer les fréquences parasites, faire ressortir celles de la voix de mon oncle, des basses, du médium, et un brin d'aigu pour les sifflantes. 
+
+Et si c'était Katier, avec un r, cattière. Bingo, dérivé de Cutter, en anglais. Des bateaux blindés, parfois des bateaux à fond plat, destinés à patrouiller sur les fleuves, dans les embouchures, ou bien le long des côtes. Et pourquoi pas puisqu'il s'agit sans doute de partir de Kertch, en Crimée, de traverser le détroit puis de longer la côte, jusqu'à Novorossisk ou Sotchi ? 
+
+Je réécoute pour vérifier. C'est bien "Katière". Mais avec l'accent tonique sur le a, mon oncle laisser la dernière syllabe se reposer doucement. 
+
+"Ils avaient été faits prisonniers par les Géorgiens et ils s'étaient démerder de garder un Luger, un pistolet, tu vois ? Et dans sa veste, il avait réussi à le garder."
+
+Je réécoute encore. 
+
+" Après, il a été coffré parce que soi-disant complot monarchiste. Après, à l'époque de Wrangel, il avait rejoint le régiment de marche du Général Markoff, où il était, à l'époque, lieutenant."
+
+J'écoute encore et encore. L'écrivain en moi est un vampire avide de l'histoire qu'il veut raconter. Quand le vampire me laisse un petit peu tranquille, j'entends le souffle difficile, les pauses un peu longues, j'entend la fatigue de mon once. Les efforts que ça lui demande, de parler de son père. Lala avait dix-huit ans quand Vsévo est mort. Et chaque fois, je lui demande de me parler de ce qui s'est passé avant sa naissance à lui, il y a déjà un siècle. 
+Le matin, quand je pars au boulot, sur mon vélo, j'écoute encore ces entretiens, comme si Lala pouvait sentir que, maintenant, je l'écoute vraiment, pour lui-même. 
+
+Comme je l'ai fait la dernière fois qu'on s'est parlés. 
+
+Un appel tardif, étrange, mon oncle n'était pas tout à fait cohérent. Après le coup de fil je me suis dit qu'il fallait appeler sa femme, partager mon inquiétude. Et puis je me suis dit qu'elle devait être à côté, et sentir, elle aussi, vu comme cela m'avait paru évident, que Lala faisait ses adieux. 
+J'ai fini le coup de fil par "до скорого," do skorovo, à très vite. 
+Je n'ai dit que des choses banales. Dire un truc du genre "Je t'aime", comme je n'avais pas eu l'occasion de le dire à mon père, ça aurai sonné bizarrement, une dissonance qui aurait voulu dire : "J'ai bien compris que demain matin tu seras mort."
+
+Est-ce que j'aurais quand même dû trouver quelque chose d'autre à dire ? Face à la mort, il n'y a rien à dire d'adéquat, rien à faire. Il n'y a rien de juste face à la mort. 
+
+
+
+---
+
+# 53_Dieu_vomit_les_tièdes
+
+- Tu veux que je te dise, Vsévo ? Mourir maintenant, là, ça m'irait. Regarde...
+D'un geste Stoliaroff montre la mer, la côte qu'on ne voit pas très bien. 
+- Tu veux dire en marin, quoi... dit Vsévo. 
+- Si t'étais mort du typhus, je t'en aurais voulu. Survivre aux bolcheviks, à Makhno et mourir dans un lit. 
+- Mais on va pas mourir, là, dit Vsévo. Et puis quitte à mourir, autant mourir au combat et en emporter le plus possible avec soi.
+- On va pas mourir, on va pas mourir, je sais pas, moi, dit Stoliaroff. Regarde nous. L'invincible armada, des katers à l'aveugle. Si la mer devient mauvaise je ne donne pas cher de notre peau. 
+- C'est pas la mer qui me fait peur. C'est ce qui nous attend à terre. 
+La mer ne devient pas vraiment mauvaise, mais les katers ne tiennent ni le clapot ni les courants. La terre défile et quand il est enfin possible d'accoster, on est déjà en Géorgie. 
+
+Alors bien-sûr, on retrouve des Volontaires, mais dans un camp de prisonniers. Malgré le coup au moral, les soldats s'y requinquent. Si les Géorgiens les traitent plutôt bien, c'est qu'ils cherchent à ménager la chèvre et le chou, les Blancs et les Rouges. Ils ont tort : il est rare que l'histoire rende justice aux modérés. Ce sont les violents, les belliqueux, les sociopathes qui écrivent l'histoire avec le sang des autres. Si l'histoire ne devait retenir qu'un seul Géorgien, ce serait évidemment Staline, à tel point qu'après le stalinisme, les garçons qu'on a appelés Joseph lui devraient attaquer leurs parents en justice pour préjudice moral. 
+
+Personne ne se rappelle Nicolas Tchkheidzé. Ce menchevik, issu d'une famille d'aristocrates Géorgiens, s'est engagé pour l'alphabétisation et la formation politique des ouvriers de son pays. Opposant au tsar, républicain, il s'est pourtant opposé à la paix de Brest-Litovsk parce qu'il préfèrait les démocraties de l'entente aux empires des puissances centrales. Pour Lénine, Trotsky et Staline, c'est un social traître, pour les Anglais, un socialiste révolutionnaire peu fiable. 
+
+
+
+---
+
+# 54_Cinquante_quatre_Tu_As_Toujours_Ton_Luger_?
+
+- Mikhaïl ! Micha, réveille-toi !
+- Quoi, fous-moi la paix, Vsévo...
+- Viens, il y a des Anglais qui discutent. 
+- Des Anglais ? Qu'est-ce qu'ils foutent là ? demande Stoliaroff.
+- Apparemment les Géorgiens veulent leur montrer comme on est heureux et bien traités, dit Vsévo. 
+- Après les villages de Potemkine, les camps modèles de Tchkheidze. 
+- Allez, on n'a pas à se plaindre, on est mieux ici que je ne l'étais au lazaret. 
+- Espérons que là aussi, on défie les probabilités et qu'on en sorte vivants. 
+- Viens, on va écouter ce qu'ils disent. 
+Un journaliste et un officier anglais déambulent dans le camp. Ils parlent de tout sauf de ce qu'ils voient, avec une liberté de ton qui montre qu'ils ont oublié que la moité des prisonniers sont des officiers, et que parmi eux nombreux sont ceux qui parlent deux ou trois langues. Les Géorgiens, apparemment, voudraient que les Anglais reconnaissent leur République Démocratique. 
+- Et alors, demande le journaliste, vous allez la reconnaître ? 
+- La moitié des gens de chez nous pense que ce serait un rempart contre les bolchéviks, l'autre moitié que ce sont de dangereux révolutionnaires, et les autres...
+- Comment ça les autres, vous avez déjà vos deux moitiés, là...
+- Le Royaume-Uni, quand il s'agit de désaccord, est composé de bien plus que de deux moitiés ! Les autres, donc, attendent qu'ils se mettent d'accord avec les Abkhazes et les Arméniens. 
+- Et alors, est-ce que les Géorgiens sont meilleurs pour parlementer avec les Arméniens que les travaillistes avec les conservateurs ? demande le journaliste. 
+- Personne ne s'entend avec personne, comme si on n'avait pas assez eu assez de guerre depuis quatorze. Certains pensent qu'on a encore des troupes à envoyer pour soutenir Dénikine, et les autres l'accusent de tous les maux, notamment d'être incapable de gérer les territoires qu'il contrôle répond l'officier.  
+- S'ils gèrent tout comme ils gèrent le chemin de fer, les derniers n'ont peut-être pas tort, j'ai cru que je n'arriverais jamais jusqu'ici.
+- Eh, vous êtes là, pourtant, non ? Pas si mal, en pleine guerre civile... 
+- Et leur gestion du commerce ? Il paraît qu'ils laissent du grain pourrir en Crimée au lieu de le vendre pour se procurer des biens et des armes. 
+- Le train, le grain, c'est du bardak, du bordel, comme ils disent. Mais ce qui inquiète, chez nous, ce sont les Cosaques. On ravitaille Dénikine, il reprend un oblast, les Cosaques s'installent et ils pillent, ils violent, ils assassinent les Juifs. 
+- Et Dénikine ne dit rien ? 
+- Si. Il condamne les violence, mais après coup. C'est que sans le Général Chkouro, il se priverait de la cavalerie cosaque, et c'est la seule chose qui fasse peur à Makhno, avec les tanks, peut-être. 
+- Et Chkouro, il ne tient pas ses Cosaques ? demande le journaliste. 
+- Vous rigolez ? Je vais vous raconter une anecdote. Je la tiens d'un colonel Russe. Il me raconte qu'un matin, il voit un cosaque soigner sa coiffure, il se rase le côté droit du crâne, laisse sa mèche retomber sur le côté gauche...
+- Ah, oui, la fameuse tchoub, le toupet cosaque. Certains disent qu'ils font de la place pour un ange sur l'épaule droite et chassent le diable avec leur mèche sur l'épaule gauche, ajoute le journaliste ravi de montrer que lui aussi, il connaît des anecdotes. 
+- Bon, reprend l'officier, il met son uniforme, et demande à être reçu par Chkouro. Ils ont ce côté un peu clanique, qui fait que même un sous-officier peut demander à à être reçu par un général. N'empêche, le Cosaque, qui est venu avec son cheval, n'en mène pas large. Chkouro lui demande ce qu'il veut et le soldat lui dit que ça fait deux mois qu'il n'a pas reçu sa solde. Et alors, lui demande Chkouro ? Ben... Je n'ai plus d'argent pour... Et sous les ordres de qui tu servais, demande Chkouro. Les vôtres, mon général. Alors Chkouro se lève, l'attrape par son toupet et lui dit : Tu servais sous mes ordres et tu manques d'argent ? Qu'est ce que tu fichais pendant le sac d'Ekaterinoslav ? Fiche-moi le camp, imbécile, avant que je te coupe la tchoub. 
+- Ah, donc Dénikine se plaint, mais ça lui évite d'avoir à payer les Cosaques. 
+- Et pourtant, les Cosaques le font payer quand même. Ils ont demandé la tête de quelques généraux dont ils n'apprécient pas la discipline ou désapprouvent les stratégies militaires, et Dénikine a commencé à plier, regrette l'officier anglais. 
+- C'est à cause d'eux qu'il a éloigné Wrangel ? 
+- C'est ce qu'il se dit. Mais que ce soient les Cosaques ou non, Wrangel en veut à Dénikine, et s'il revient, non, quand il reviendra en grâce, parce que les Blancs ne peuvent pas se permettre le luxe de se priver d'un bon général, Wrangel fera tout pour prendre la place de Dénikine. Et ça risque de barder entre lui et Chkouro aussi. 
+- J'ai rencontré Chkouro, dit le journaliste, qui semblait décidément plus désireux de parler que d'écouter, je l'ai croisé à Ekateriinodar. Je marchais dans cette boue grasse qui semble ne jamais quitter la ville. De loin, je vois une troupe s'approcher, je me dis, encore un convoi mortuaire. Il y en avait tous les jours, avec le typhus. Mais l'attroupement marchait sans dignité, en parlant fort. En fait, c'était Chkouro entouré de ses soudards, je n'ai pas demandé mon reste... Alors, c'est à cause des Cosaques que les politiciens chez nous hésitent à lâcher Dénikine ? 
+- Pff, les Cosaques lâcheront Dénikine avant nous. Les Cosaques du Don ont leur petit gouvernement, ceux du Terek aussi. Mais ce sont les Cosaques du Kouban qui lâcheront l'armée des Volontaires en premier. Ils sont comme leurs chevaux : ils sentent l'écurie toute proche et ils veulent rentrer à la maison. 
+- Et pour ici, pour le camp ? demande le journaliste...
+Vsévo et Micha se crispent d'un coup. Depuis un quart d'heure qu'ils écoutent, ils n'ont eu droit qu'à des racontars, mais là...
+- Vous croyez que les Géorgiens vont faire quoi, reprend-il. Ils ne vont pas livrer les Dénikinistes à Trotsky, quand même ? Mais s'ils les libèrent, les Rouges s'en serviront comme prétexte pour attaquer. 
+Voilà pourquoi ce journaliste racontait ses histoires benoîtement, pour que l'officier ne se rende pas compte que la conversation dérive vers des informations bien plus sensibles. 
+- Tchkheidzé est naïf, répond l'officier. Les soviétiques veulent tout l'Empire. Ils feront comme on fait toujours. Au lieu de parler des *sujets de l'Empire* ils parleront des *camarades travailleurs,* mais ils dirons que les leurs sont persécutés parce qu'ils parlent russe, et au prétexte de les défendre ils reprendront du territoire. Quand aux Géorgiens, dans l'immédiat, ils ne feront rien du tout. Ils vont attendre sans trop de zèle que les Volontaires se fassent la malle tout seuls. 
+- Mais du coup, c'est vous qui allez récupérer la patate chaude, qu'est ce que vous en feriez, de ces prisonniers, s'ils arrivaient jusqu'à un port de la mer noire ? 
+- Bof, répond l'officier, comme si finalement, ce qu'il avait prédit ne risquait pas d'arriver. Les soldats, ce ne sont pas les passagers qu'on aime le moins à Novorossisk. Ils sont disciplinés, et du moment où on les aide à rejoindre des troupes, ils savent se tenir mieux que certains alliés avec qui on doit composer tous les jours. 
+- Vous allez encore dire du mal des Français. 
+- En l'occurrence, ce sont les Italiens qui semblent ne penser qu'à rentabiliser leurs trajets, comme si on donnait dans la croisière, ces temps-ci. Non, ce qu'on redoute, nous, dit l'officier, ce sont les altesses. C'est comme si la réalité ne les concernait pas, comme si le monde entier n'était là que pour les servir. Les bolcheviques ont massacré leurs maris, mais elles nous engueulent si on a le culot de mettre une comtesse dans la même cabine qu'une duchesse. 
+
+Maintenant que les deux anglais se tiennent en silence, Vsévo et Micha ont peur de se faire repérer s'ils bougent. Jusqu'à ce que Micha demande : Tu as toujours le Luger ? 
+
+---
+
+# 55_Inaccessible_a_l_ennemi
+
+" Beaucoup a été fait, et beaucoup reste à faire, mais la Crimée est d'ores et déjà inaccessible à l'ennemi."
+
+Les représentants français et anglais se demandent si Wrangel croit en ce qu'il déclare ou s'il essaie de les rassurer afin qu'ils continuent à le soutenir. 
+En ce premier septembre mille neuf cent vingt, Wrangel a fait rappatrier le régiment Korniloff depuis Perekop pour une parade devant la mission militaire étrangère. 
+
+Il passe les troupes en revue et on pousse des hourras pour ces hommes épuisés. On les a arrachés au chantier de renforcement de l'ancienne forteresse turque. Trois lignes de tranchées et, le long des vingt kilomètres de ce mur de huit mètres de haut, des entrelacs de barbelés rendent une attaque difficile, improbable. 
+
+Wrangel parle des fortifications supplémentaires, et dans la délégation, un officier anglais se demande si parmi les soldats qui défilent dans leurs uniformes disparates se trouvent les deux jeunes militaires qui l'ont fait se déshabiller pour s'échapper d'un camp géorgien avec son uniforme. 
+
+Les fortifications supplémentaires n'existent que dans le discours de Wrangel. À l'été mille neuf cent vingt, Wrangel a préféré lancer des offensives vers le continent au lieu d'enclaver la Crimée pour de bon et d'organiser une économie de guerre digne de ce nom. 
+
+Il y a bien quelques lignes de chemin de fer qui permettent de passer d'ouest en est, mais c'est au sud, dans les entrepôts de la flotte de la mer noire qu'il y a encore les tonnes d'acier et de matériaux qui permettraient de rendre la Crimée "inaccessible à l'ennemi."
+
+L'impression de relative sécurité vient que la presqu’île ne peut être attaquée que par l'isthme de Perekop, au nord-ouest. 
+- Et s'il traversent le Syvach, dit Vsévo. 
+- Quoi le Syvatch ? dit Mikhaïl.
+- Ben, l'espèce de marais entre la Crimée et le continent ? 
+- Je sais ce que c'est que le Syvatch, mais ils ne marchent pas sur l'eau, quand même, les bolcheviques ? 
+- Ouais... Mais il n'y a que cinq ou six mètres de profondeur, si ça gèle ? 
+- Eh, ce n'est pas la Baltique non plus. Le mois de Novembre n'est pas encore commencé...
+
+Et de fait, lorsque les Rouges attaquent, c'est par l'isthme de Perekop, frontalement. Vague après vague, l'infanterie soviétique est fauchée par les mitrailleuses, des Maxims et des Lewis fournies par les Anglais à Wrangel, qui a succédé à Dénikine à la tête des armées Blanches. 
+
+Après les assauts, on ne ressent plus rien. La fatigue est telle qu'une fois assurées les corvées et les tours de garde, on ne peut que dormir, plus rien n'existe que le corps, qu'il faut préserver, recharger avant la prochaine bataille. 
+Aussi, quand un jeune sous-officier apporte à Vsévo une lettre, cela lui fait l'effet d'un rêve. C'est son ami Andreï Papkoff. La lettre date de quelques mois, et c'est un miracle qu'elle parvienne jusqu'à Vsévo, même avec autant de retard. Il lui écrit de Sébastopol. À l'heure où la lettre lui parvient, il doit déjà être à Odessa. À moins qu'il n'ait pas pu rejoindre sa troupe et soit revenu sur le paquebot Alexandra, d'où il a écrit à Vsévo. La lettre semble parler d'une autre réalité, une Crimée sans guerre, ou presque, une Crimée où des gens possèdent des choses, en envoient à leur famille restée en Russie, un autre monde probablement déjà détruit par le fléau communiste dont on n'est protégés que par quelques mètres d'eau saumâtre
+
+Mais le six novembre, le vent tourne. Littéralement. 
+
+Le vent d'est laisse place à un vent d'ouest si fort qu'il repousse l'eau peu profonde du Syvatch jusqu'à rendre certains gués praticables. Sur les langues de terre qui émergent, un souffle glacé fait geler la boue. C'est Moïse à l'envers : la mer s'ouvre pour les assaillants. 
+Il faut abandonner Perekop, se retrancher sur Yushun. À Yushun, au moins, les trains blindés peuvent venir en renfort. Mais en renfort de quoi ? Il n'y a là ni tranchées, ni fortifications d'où bombarder à distance. 
+Vsiévolode Valerievitch Gousseff mène son unité dans un corridor rocheux pour reprendre une fortification que la 51ème division soviétique a conquise dans la nuit. En face, une unité makhnoviste fait feu, puis fait mine de battre en retraite. Quand on comprend que c'est l'habituelle tactique de repli et d'attaque, il est trop tard. Les mitrailleuses mobiles fauchent la première ligne de soldats. On recule. On se cache. Quand la nuit permet d'attaquer à nouveau, c'est à la baïonnette que de finissent les combats, les yeux dans les yeux. 
+Il n'y a plus ni honneur ni horreur, juste une attention douloureuse à l'instant, le bruit, le mouvement, tout. Les corps qui s'effondrent, la mort d'un camarade comme celle d'un ennemi est juste une information de plus. 
+Le lendemain être en vie est une légère surprise, retrouver le train blindé une étrangeté supplémentaire. 
+- Tu as vu la loco ? dit Stoliaroff, encore moins blindée que la précédente. 
+- Elle a sauté en octobre, lui répond un mécanicien. Et les deux plateformes arrières ont été récupérées sur le train blindé "Officier". 
+- 
+Si toutes les pièces du train ont été changées depuis le début de la guerre, s'agit-il du même train, juste parce qu'il continue à porter le même nom ? 
+
+Et s'il ne reste d'un régiment aucun des hommes qui le composaient au début de la guerre, est-ce le même régiment ? 
+
+Pour les trains blindés, la question ne se posera pas. Impossible de prendre le risque de laisser ces armes décisives tomber aux mains des bolcheviques. Alors, en attendant la prochaine offensive, on donne l'ordre au "Saint-Georges le Victorieux" de reculer pendant une vingtaine de minutes, comme s'il devait remonter vers le front en marche arrière. Le "Russie Unie" fait monter la pression et s'éloigne, à reculons, lui aussi, mais vers le sud. Puis les deux trains les plus mal nommés de l'histoire ferroviaires repartent en marche avant, sans mécaniciens, sans chauffeurs, ils s'écrasent l'un contre l'autre. L'explosion de vapeur, le vacarme des plateformes qui se tordent, rien n'atteint les soldats épuisés qui se retirent déjà vers Simféropol. 
+
+De là, on les renvoie vers Sébastopol. Wrangel, s'il n'a pas su assurer la défense de la Crimée a sur organiser son évacuation.  Il faut qu'ils arrivent à Sébastopol avant qu'elle soit finie. On leur transmet des vivres pour trois jours, et le communiqué du généralissime des Armées Blanches en déroute. 
+
+" Sur mon ordre, il est procédé actuellement à l'évacuation et à l'embarquement, dans les ports de Crimée, de tous ceux qui ont partagé avec l'armée son chemin de croix, des familles de militaires, des membres de l'administration civile avec leurs familles, et des particuliers qui se sentent menacés par l'arrivée de l'ennemi. L'avenir de ceux qui partent est absolument inconnu. Hors de la Crimée, nous n'avons pas de pays. Nous n'avons pas de trésorerie non plus. Je préviens les partants, en toute sincérité de ce qui les attend."
+
+
+
+---
+
+# 56_ce_qui_nous_attend
+
+Je ne savais pas ce qui m'attendait quand j'ai commencé à écrire ce livre. J'avais si peu de matériel. Au départ, je n'avais que les entretiens avec l'oncle Lala. 
+
+- Et puis donc là, jusqu’à la fin quoi, dit Lala de sa voix fatiguée, jusqu’à la fin, évacué en novembre 1920 tu vois, et direction Bizerte. 
+- L’évacuation de 1920 c’est la grande évacuation de Sébastopol ? ai-je demandé. Il n'y a pas une histoire de sous-marin, non ? C'est pas en sous-marin qu'il est évacué ? 
+- Non, je crois pas, dit Lala, puis d'une voix plus assurée... Non, non, non, non. 
+
+Après, j'ai interrogé sa femme, sa fille et j'ai compulsé toutes archives numérisées sur un CD-ROM. Puis j'ai trouvé ce cahier de copies carbones des lettres que Vsévo a envoyées plus tard, quand il était responsable des associations d'anciens combattants et d'anciens élèves officiers de marine, presque impossibles à déchiffrer. Puis j'ai anotté les quelques pages du fameux fichier "famille1.doc" trouvé par hasard sur une clé USB. 
+
+Il fallait faire avec si peu. Combler les trous dans le récit en lisant des livres, des articles de revues historiques, des sites internets toujorus partisans, toujours contradictoires.  Mais ce que j'aurais tellement voulu c'étaient des lettres personnelles, me faire enfin une image intime de Valéry, de Vsévo, de leur relation. 
+
+Méfie-toi des prières que tu adresses au néant, il lui arrive de les exaucer avec son humour bien particulier. Une fois que j'avais écrit tout ce qui précède, ma cousine est passée me voir. Elle avait trouvé dans une malle, au grenier de la maison du Loir-et-Cher où notre grand-mère russe avait habité un paquet de lettres adressées à Vsévo. 
+
+J'aurais dû sauter de joie, mais j'étais tétanisé. Des kilomètres de phrases indéchiffrables, dans lesquelles se trouvait peut-être le démenti implacable des personnalités que j'avais tenté de reconstruire. Et l'impossibilité de savoir. 
+
+Un matin, un message dans ma boite mail me demandait de signer une pétition pour soutenir la demande d'asile d'un opposant à Vladimir Poutine, appelons le V.K. 
+V.K. avait lu certains articles que je publiais sur un site internet et pensait à juste titre que je serais désireux de l'aider. Après avoir signé la pétition, j'ai diffusé l'appel sur les réseaux sociaux. Des pouces, des cœurs, des emojis clap-clap mais aucune signature sur la pétition déposée auprès de l'Assemblée Nationale. J'ai aussi reçu les habituelles intimidations et les insultes des trolls poutinophiles persuadés que leur soutien à l'agression russe montrait leur liberté d'esprit face à la propagande occidentale décadente des lobbys LGBTQ+, ukrainiens, juifs et que sais-je encore. 
+
+V.K., après avoir signé un appel à la libération de Navalny s'est fait intimider puis tabasser par des sbires du régime et a dû s'installer dans un pays assez éloigné de Moscou pour ne pas malencontreusement tomber d'une fenêtre, mais assez proche pour que son passeport russe lui permettre de traverser la frontière. 
+Quand je lui ai demandé de quoi il vivait, il m'a dit qu'il faisait de la traduction. Nous avons convenu d'un tarif horaire, et il a déchiffré les lettres. Je scannais, il transcrivait, il faisait un décompte des heures, je le payais, j'attendais d'avoir assez de fond pour le paquet suivant, nous recommencions, je traduisais grossièrement, puis je tentais de ranger ces centaines de lettres dans l'ordre chronologique, en déchifrant des tampons sur des timbres, ou en déduisant la date du contenu quand l'enveloppe était manquante. J'essayais de comprendre qui étaient les expéditeurs, de deviner les réponses de Vsévo que je ne lirais jamais. Je vivais dans la peur de la lettre qui me ferait me dire : "Merde, tout ce que j'ai écrit est faux." 
+Mais la lettre la plus ancienne datait du neuf janvier mille neuf cent vingt, envoyée par un certain Andreï Pakov. 
+
+*Cher Vsiévolode !
+
+*Après de longues recherches, nous avons enfin réussi à vous localiser. En passant de Kiev à Théodosie le 12 novembre, Tatiana Alexeïevna et moi-même vous avons cherché en vain à Sébastopol. Nous sommes allés dans le bâtiment où j'avais remis toutes les listes, mais je n'ai trouvé aucune trace de vous. Puis, depuis Théodosie, nous avons reçu votre télégramme en réponse à nos recherches. Vous ne pouvez imaginer ma joie lorsque j'ai appris que vous aviez été retrouvé. Malheureusement, Tatiana Alexeïevna était déjà à Odessa, elle n'était pas au courant et n'a donc pas pu faire part de cette bonne nouvelle à Valéry Yakovlevitch. J'ai envoyé une lettre à Odessa, à l'adresse de Nitche, avec votre adresse, mais je ne sais pas quand elle arrivera.
+
+*Je suis actuellement à Sébastopol, à bord du paquebot « Alexandra » (quai de la Russie). Contre les ordres, je tente de me rendre à Odessa. Je ne sais pas si j'y parviendrai. Je ne descends pas à terre afin de ne pas perdre la possibilité d'être à Odessa, où je pense retrouver ma troupe. Le paquebot doit partir tôt samedi matin. Nous verrons bien. Je ne sais pas comment vous conseiller de transmettre cette lettre à vos proches, si vous en avez la possibilité. Sur l'Alexandra, si vous avez le temps, vous pouvez la remettre au commandant, le lieutenant Kolin, pour moi. En général, vous pouvez faire une demande de transmission comme suit : Odessa, Direction de la gestion des mouvements de troupes, au lieutenant Vladimir Karlovitch Nitche (…………… ……………… notre ……………..) pour transmission – . Deux moyens de transmission pour vous, Vsevolod ………….. ………………………. ……………. Portez-vous bien.
+
+*Salut !
+
+*Votre Andreï Papkov*
+
+La suivante date du mois de mai de la même année. On y apprend que Valéry Gousseff et sa femme Tatiana ont déjà émigré et qu'ils vivent à Belgrade. Le fils de Tatiana, Aliocha, est reparti en Crimée pour suivre l'exemple de Vsévo et suivre des études dans le corps des cadets de marine. En mai  mille neuf cent vingt, ils croyaient donc vraiment que la Crimée était inaccessible à l'ennemi !
+
+Andreï Papkov donne des nouvelles de sa famille, en Russie. 
+
+*J'ai reçu deux lettres de ma sœur, qui indiquent que tout le monde est en vie, mais à en juger par les prix mentionnés dans la lettre, ils doivent souffrir de la faim. De mon côté, je fais tout mon possible pour les soulager de cette horreur : je leur envoie des colis de nourriture. Mais je ne sais pas s'ils les reçoivent ! Nous savons tous très bien ce que signifie être affamé pendant deux ou trois semaines ou vivre plusieurs mois avec très peu à manger. Mais vivre pendant des années dans une région où les chats et les chiens ont été mangés, où il est difficile d'espérer de l'aide, c'est vraiment un cauchemar.*
+
+À ce jour, je ne sais toujours pas qui est Andreï Papkov. 
+
+La guerre, que les livres d'histoire, les romans, et plus encore les films nous présentent comme une suite ininterrompue de combats héroïque est une réalité fragmentée dans le temps et l'espace, où l'on peut faire des études à Sébastopol pendant qu'un adolescent du même âge creuse des tranchées à cent kilomètres de là, qu'on peut avoir peur, à Kiev, des attaques de drones iraniens tout en faisant tourner son entreprise de BTP ou de négoce de céréales. On peut mourir à Kharkyv pendant que le Paris-Saint-Germain fête sa victoire en ligue des champions de football. 
+
+
+
+
+
+
+---
+
+# 57_Une_simple_déviation
+
+Ils entrent dans Sébastopol avant l'aube et ce n'est pas le soleil levant qui rougit le ciel et la mer, mais les flammes qui dévorent le bâtiment de la Croix-Rouge américaine. Au fur et à mesure qu'ils s'enfoncent vers le port, ils ramassent des vêtements, de la vaisselle, avant de comprendre : il n'y aura pas de place pour tout ça à bord des bateaux surchargés. Ils posent à leur tour ces luxes désormais inutiles que les soldats derrière eux ramasseront et feront avancer de quelques centaines de mètres avant de les abandonner à leur tour. 
+Quand ils parviennent aux quais, au petit jour, les ouvriers du port et des chantiers les escortent afin de ramasser ce dont ils pourraient encore se délester. Ils ne pensent même pas à monter à bord des bateaux, remplis de l'espoir que les Rouges verront en eux les opprimés qu'ils sont. Ils se trompent car la répression que Bela Kuhn lancera horrifiera même Trotsky.  
+Les chiens qu'on n'a pas laissé monter à bord des bateaux errent dans la ville. Un Cosaque galope : il préfère se cacher dans la montagne jusqu'à ce que la répression se tasse plutôt qu'abandonner son cheval. Tous n'ont pas fait ce choix et des bêtes maigres et désemparées avancent au hasard. 
+Vsévo, qui a reçu quelques semaines avant l'offensive de Perekop une lettre d'un ami cherche le paquebot Alexandra, espérant que le lieutenant Nitche pourrait lui donner des instructions précises. 
+Mais il ne reste plus que les bâtiments de la marine. L'Alexeev est rempli à ras-bord, mais il reste de la place sur le Cronstadt, le navire-atelier qui devra remorque le Jarkyï, un torpilleur mal en point que son commandant, Manstein, refuse d'abandonner aux Rouges. 
+
+Les remorqueurs manœuvrent les navires jusqu'à la sortie du port. Il faut un certain temps pour que le cœur se serre. Il y a d'abord le soulagement d'être à bord, la fatigue qui vous terrasse une demi-heure, la faim, qu'on apaise avec le reste des vivres de Simféropol et enfin la silhouette méridionale de l'île vous transperce le cœur. 
+
+Dans la nuit, la mer se lève, l'amarre se brise, et deux fois on pense avoir perdu le Jarkyï. Dans la nuit et sur une mer démontée, on jette des échelles de corde. Les femmes d'officiers les escaladent, terrifiées, les enfants sont tenus fermement pas les matelots qui les hissent, et il faut se lever, aménager les ponts pour que chacun ait une place pour dormir
+
+Le froid réveille Vsévo, la nuit est encore noire. Au loin, devant, on aperçoit des lumières. Constantinople. Avec l'aube arrive le détroit du Bosphore. Tout du long, les navires des alliés victorieux patrouillent comme des gendarmes dans une ville. Pas un ne salue les bâtiments Russes : ce ne sont plus des navires de la flotte impériale, juste des transports de réfugiés et Vsévo ressent une nausée qui ressemble à du mal de mer. 
+
+Une humiliation après l'autre, une fois à quai, il faut arborer le pavillon de quarantaine. Comme dans tous les ports, les marchands se pressent en espérant faire des affaires, mais la monnaie imprimée par Wrangel ne vaut rien. Les femmes décousent leurs ourlets, sacrifient les bijoux qu'elles avaient sauvé jusque là pour acheter ce qui se vend. Ce sont les Français qui assureront le ravitaillement. 
+
+On finit par pouvoir débarquer et l'on passe de la fuite à l'exode organisé. Des bruits courent. Alors qu'ils s'éloignent du port, Vsévo et Mikhaïl partagent les informations qu'ils ont glané chacun de leur côté. 
+- On dit que le corps des Volontaire sera dirigé vers Gallipoli, dit Mikhaïl. 
+- Et les Cosaques, ils seront séparés ou bien ? demande Vsévo. 
+- Oui, de ce que j'ai entendu, les cosaques du Don iront à Tchatalda, fit Micha, et ceux du Kouban à Lemnos. 
+- Quant à la flotte, dit Vsévo, j'ai entendu dire que la France ne nous laissera pas tomber. Mais elle a la trouille que les soviétiques se maintiennent au pouvoir, alors personne là-bas ne veut de nos navires dans les ports de Toulon ni de Brest.
+- Et nous, qui on va suivre, demande Stoliaroff ? On a lutté avec le train blindé des Volontaires, le régiment Markoff, épaulé les Cosaques, et on n'a jamais fini l'académie navale...
+- Et alors ? répond Vsévo sans une hésitation. On est des cadets de la marine, personne ne peut nous enlever ça. 
+
+ La guerre civile, horrible, traumatisante, abjecte, ils ne veulent la voir que comme une simple déviation, un accident de trajectoire qu'on corrige pour revenir à l'azimut visé : devenir officier de marine. 
+Pour le moment, ils n'ont pas de cap à tenir, ils errent dans une ville où l'on peut croiser autant d'Anglais que de Russes, les Turcs préférant ces derniers, la solidarité entre vaincus d'aujourd'hui prime sur la rivalité d'hier. Les familles d'officiers qui ont pu emporter quelques objets de valeur les négocient un peu partout, dans des bureaux de change, auprès de marchands, ou simplement les troquent dans la rue. 
+Une voix qui se veut enjôleuse alpague Vsévo et Mikhaïl.
+- Alors mes mignons, on cherche du réconfort ?
+L'accent distingué de la jeune femme tranche avec ce qu'elle suggère. Les adolescents qui parlaient de se dépuceler au bordel après avoir gagné leurs galons se sont changés en combattants apathiques. Vsévo adresse un sourire triste et las et ne trouve rien à répondre. Tous ne montrent pas les mêmes pudeurs, et c'est de cette nécessité dégradante qu'est née la réputation sulfureuse dont on affuble encore les femmes slaves. C'est que personne ne sait comment seront traités les civils qui ont embarqué à Sébastopol, combien de temps ils devront tenir avant qu'on leur permettre de travailler, et où ? Les familles de militaires suivront sûrement dans les camps de Gallipoli ou de Lemnos, mais les autres ? On dit que certains pêcheurs peuvent vous emmener jusqu'en Grèce ou en Italie, certains rêvent de rejoindre les Russes qui sont déjà à Nice, mais faut-il croire ces passeurs improvisés quand on voit les frêles embarcations sur lesquelles ils naviguent ?
+
+
+
+
+
+---
+
+# 58_Le visage_tourne_vers le sable
+
+Au départ, les migrants étaient surtout des hommes directement visés par la répression, soit des démocrates, soit des croyants trop zélés pour le régime en place. Puis la guerre civile a obscurci les perspectives de tous et les plus éduqués, les médecins, les universitaires, certains que leurs compétences leur permettraient de refaire leur vie en Europe ou ailleurs ont tenté de fuir avec leurs familles. On avait mis en place des camps sur les îles grecques de Lesbos, de Chios, de Samos et de Leros. Au départ, les politiciens des pays européens n'ont pas osé aller à l'encontre de leurs opinions publiques, effrayées par des fantasmes d'invasion que certains partis entretenaient à dessein. La Croix-Rouge et d'autres organisations dénonçaient les conditions de vie dans ces camps, mais la presse n'y avait pas accès et l'absence de photos permettait à chacun de ne pas se sentir trop concerné, de se dire, c'est loin, tout ça, c'est le problème des Turcs, pas le nôtre. 
+Sur la côte turque, en revanche, la presse pouvait circuler et la journaliste Nilüfer Demir se trouvait sur la plage d'Ali Hoca Burnu, près de la ville de Bodrum, quand elle fit cette photographie insoutenable  de cet enfant de trois ans, dont le T-Shirt Rouge retroussé sur un short en jean laissait apparaître la peau du ventre et du dos. On aurait pu le croire endormi, mais son visage était appuyé contre le sable. Alan Kurdi, trois ans, a perdu la vie le 2 septembre 2015 lors du naufrage de l'embarcation de fortune dans laquelle sa famille fuyait la Syrie. Cette image émut enfin l'Europe qui coordonna des politiques d'accueil pour répondre à l'urgence humanitaire. Ce fut une parenthèse. Petit à petit, nous nous sommes habitués aux décomptes macabres, aux polémiques sur les bateaux de secours ou l'ambivalence de nos garde-côtes, et il ne se passa rien quand parut la photo du corps d'une petite fille échouée sur une île Tunisienne. 
+Je ne sais pas ce qu'il faudrait faire aujourd'hui, je ne doute pas qu'il soit peut-être difficile, économiquement, culturellement peut-être, d'accueillir quelques dizaines de milliers réfugiés, mais je ne peux pas m'empêcher de penser qu'il y a cent ans, c'est plusieurs centaines de milliers d'hommes et de femmes fuyant la terreur rouge que la France su recevoir sans vaciller. Eux aussi aurait à trouver du travail, eux aussi seraient pointés du doigt quand les conséquences de la crise de vingt-neuf firent exploser le chômage dans les années trente et eux aussi participèrent à faire de la France ce qu'elle est. 
+
+
+
+
+
+
+---
+
+# 59_J_ai_quelque_chose_pour_toi
+
+Lorsque j'ai eu neuf ans, mon père a connu une période de chômage. Je crois qu'il avait refusé de fermer des agences de l'entreprise de bâtiment pour laquelle il travaillait, demandant plutôt à ce que ses supérieurs le laissent modifier des pratiques pour améliorer leur rentabilité plutôt que de mettre à la porte les commerciaux qu'il encadrait. Comme il refusait de licencier, on le licencia. Malgré ou à cause de son statut de cadre supérieur, il eu du mal à retrouver un poste équivalent et ne retrouva du travail qu'en Alsace. 
+Nous avons quitté notre appartement de région parisienne pour une maison près de Strasbourg, avec un étage et un double garage en sous-sol. Ma mère raconte que mon père a failli ne pas la louer, parce qu'elle lui paraissait trop grande, trop luxueuse, avec le sol du salon pavé de marbre, trop belle pour lui qui continuait, malgré sa réussite, à se voir comme un fils d'immigrés russes. 
+
+La maison se situait dans la seule rue pavillonnaire du quartier. Plus on s'en éloignait et plus les bâtiments s'élevaient vers le ciel, jusqu'aux tours des cités sensibles de Schiltigheim où est née ces années là la tradition de brûler des voitures pour la Saint-Sylvestre. 
+Dès la première semaine je me fis voler mon vélo dans la cour de l'école, qui restait ouverte pour que les gamins des quartiers puissent y jouer. Nous sommes allés le rechercher dans les rues alentour et on nous fit sentir que c'était une idée suicidaire. 
+Dès la rentrée, je me suis fait tabasser dans la cour de l'école. Je ne comprenais pas pourquoi j'attirais à ce point l'animosité des garçons de mon âge. J'étais premier de la classe, mes parents étaient riches, et j'étais un affreux parigot. 
+Avant de déménager, même si nous ne vivions pas dans un quartier huppé, dans la cour de l'école publique de la Celle Saint Cloud, je n'avais peur de personne. Mon grand frère et ma grande sœur n'étaient pas spécialement tendres avec moi et je croyais que nos chamailleries étaient des bagarres qui m'avaient appris à me battre. 
+Dès la première semaine de cours à Schiltigheim, je vis un garçon de ma classe de CM1 s'en prendre à un CP et je crus qu'il était de mon devoir de lui venir en aide. Je fus assez surpris de voir qu'en fait de combat singulier, une bande entière me tomba dessus, notamment deux frères jumeaux d'origine turque. 
+"Parisien, tête de chien, parigot, tête de veau."
+L'insulte me blessa plus que les coups. Neuf ans, c'est un peu jeune pour se poser des questions sur son identité. Ou déjà tard ? Jusqu'à présent, la société ne m'avait pas vraiment posé de questions sur mes origines, contrairement à ceux qui m'y forçaient maintenant. 
+
+Pour eux, j'étais un bourgeois et j'étais un parisien. J'aurais dû vouloir défendre cette identité attaquée, mais je n'arrivais pas à comprendre ce qu'on me reprochait à moi, qui n'y était pour rien. 
+
+"Nous sommes aisés, mais pas riches," répétait mon père. Je me souviens de cette fois où j'étais à terre et que mes camarades me rouaient de coups de pied. Ils portaient des bottes en caoutchouc, alors que l'été n'était pas encore terminé. Lorsque j'en parlais au seul autre fils de bourgeois de la classe, il me dit que c'était parce que c'était ce qu'il y avait de moins cher, que ça ne se trouait jamais et que les parents pouvaient les refiler d'un enfant à l'autre au moins deux ou trois fois. 
+
+"Parisien ? Mais tu es né à Versailles, mon fils," disait ma mère. C'était pire. Le château, le Roi-Soleil, les familles catholiques de cinq enfants. 
+J'étais allé une fois ou deux à Paris, au jardin d'acclimatation, et ça m'avait semblé une véritable expédition. J'avais vu la Tour Eiffel, certes, mais je ne me souvenais pas y être monté. Mon père nous disait simplement que, quand on la rénovait, cela demandait des tonnes et des tonnes de peintures, et des ouvriers habiles et courageux. Je crois que c'est tout ce que je savais de Paris : la peinture sur la Tour Eiffel pesait des tonnes et des tonnes. 
+
+À cette époque mon père vendit à son frère, l'oncle Lala, sa part de la maison de ma grand-père russe, dans le Loir et Cher. Ma mère fit de même avec sa part de la résidence secondaire de ses parents dans le Finistère. Ils purent ainsi acheter et rénover une longère dans un autre hameau du même village breton. Les pelleteuse avait excavé des tombereaux de terre pour libérer le rez-de-chaussée et  le chantier avait un air de fouille archéologique. C'est à cette terre que je me sentais appartenir. À la fin des vacances d'été, avant de repartir en Alsace, mes parents disaient : " Quelle tristesse de reparti, on resterait bien là toute l'année." 
+Je comprenais vaguement que c'était impossible, à cause du travail de mon père, mais après tout, nous avions bien déménagé en Alsace, il devait bien y avoir des entreprises en Bretagne ? 
+En réalité, le lien de mes parents avec la région parisienne était bien plus fort que cela. Ma mère avait été élevé dans le seizième arrondissement, mon père avait fait ses études de droit à Paris. Quand, au bout de deux ans, mon père a dû à nouveau changer d'emploi, il est revenu là, en banlieue ouest. À l'époque, je ne savais pas que ses parents s'étaient installés sur les bords de Seine, entre Rueil-Malmaison et Bougival, là où l'on trouvait la maison de Tourguenieff et une petite communauté russe. 
+Je m'y sentais maintenant encore plus étranger qu'en Alsace. Je ne sais pas si c'était une forme de syndrome de Stockholm, ou une prise de conscience politique précoce, mais l'inscription dans un collège bourgeois de Saint-Germain-en-Laye, au lieu de me paraître une libération après les coups plus souvent reçus que donnés dans la cour de l'école primaire de Schiltigheim me fit l'effet d'un emprisonnement. Tous ces fils de riche qui portaient pour un demi-SMIC de vêtements de marque me semblaient puérils et monstrueux. 
+
+Plus que jamais, j'attendais les vacances et le retour en Bretagne. Je savais que j'y étais moi-même perçu comme un fils de bourge dans sa résidence secondaire, mais la mer, le vent, la roche à qui l'oxydation donnait une couleur orange sous le vert sombre des bruyères et des ajoncs du chemin côtier m'apaisaient. Mes frère et sœurs me raillaient : "Tu vas encore te la jouer Chateaubriand, cheveux au vent et chanter tes chansons tristes aux hollandaises de passage ?"
+N'empêche, j'ai quitté l'Île-de-France dès que j'ai pu et j'ai fait mes études à Rennes, à Lorient, à Vannes. Puis, après mes années d'errance outre-mer, j'y suis revenu. Mon fils est né à Brest. 
+Assez rapidement, j'ai tissé des liens avec les voisins du hameau où se trouvait la longère familiale. Assez rapidement, dans le Finistère, ça veut dire au bout de quinze-vingt ans. 
+Je tâchais de faire profil bas, de m'entendre avec tout le monde, ce qui n'était pas une mince affaire car les uns détestaient les autres, d'une famille à l'autre, bien-sûr, mais aussi au sein de chaque famille. 
+Je n'habitais pas le hameau. Selon les opportunités, j'ai habité à Rennes, à Brest, à Vannes, et même, pendant un an ou deux, dans le village. J'étais devenu le conjoint d'une exploitante agricole. Quand elle a gardé la ferme mais changé de fermier, une partie du village s'est rangée de son côté, mais dans le hameau, où j'ai dû me réfugier quelques mois avant de rebondir, je ne fus pas mis à l'écart. Par a suite, où que j'habite, quand je venais faire un tour, je faisais le tour des maisons pour dire bonjour, et, à force, on me parlait un peu plus longtemps, un peu plus souvent, un peu plus librement. 
+
+Mais je suis resté un étranger quand même, et quand Jojo Le Calvar est mort, au mois de janvier dernier, ses enfants ne m'ont pas prévenu. Pourtant, c'est lui qui, alors que je pensais abandonner l'écriture de ce libre, m'avait relancé en me disant : "Ah, j'ai quelque chose pour toi."
+
+
+
+---
+
+# 60_Cosaques_et_bretons
+
+
+
+Ils avaient finalement raison, les petits turci-alsaciens, de me traiter de parisien. Je n'avais pas conscience de faire l'amalgame entre la France et l'Île-de-France. L'universalisme des Lumières, ça m'a toujours plus, moi qui n'avais à renoncer à aucun accent pour parler comme les gens qu'on voit à la télévision et les lois de la république n'entaient en conflit avec aucun élément d'histoire ou de coutume propre à ma région. 
+Même lorsque je faisais des recherches pour ne pas commettre trop d'erreurs historiques pour ce livre, la spécificité cosaque au sein de l'empire russe me semblait exotique et sans équivalent en France. 
+Pourtant j'avais choisi d vivre ici, où chacun sait qu'Anne de Bretagne n'a accepté le rattachement à la France qu'à la condition qu'il n'y ait pas d'impôt sur les routes (ni sur le sel note de bas de page). La révolte des Bonnets Rouges, lors de la mise en place des portiques qui devaient permettre de taxer les camions empruntant les voies rapides de Bretagne n'a été une surprise pour personne, ici. 
+Et pour renforcer le parallèle avec les Cosaques, il suffit de regarder la sur-représentation des Bretons dans la marine nationale . 
+
+Je n'ai évidemment connu JoJo le Calvar qu'après sa retraite de la "royale". On le voyait faire son jardin, ou y peindre , des tableaux où la mer était presque toujours présente. Pas seulement la nôtre : il peignait aussi bien les criques du Finistère que les pains de sucre de la baie d'Along. 
+"J'y suis allé deux fois, tu sais, en Indochine."
+J'évitais soigneusement tout sujet polémique, orientant toujours nos discussion vers la peinture, le choix des sujets, les techniques, dressant des parallèles avec mon arrière grand-mère et ses amis peintre du Faouët, comme pour rappeler que même si j'étais un parisien, j'avais des attaches dans le coin depuis plus d'un siècle maintenant. 
+
+Dans la famille Le Calvar, pour une raison mystérieuse, on appelait toujours les hommes par leur deuxième prénom. Ansin Jojo s'appelait en réalité Rémy Le Calvar. Il ne se vantait jamais de ses décorations, ni de la croix de guerre, ni de la Légion d'honneur qu'on lui avait décerné une dizaine d'année auparavant. On ne parlait que de potager et de peinture, c'est pourquoi j'ai été surpris qu'il me parle d'un bateau de guerre. 
+
+" Tu vois ce que c'est, un aviso ? Non ? Des navires militaires pas trop gros, ça te dit rien ? Bon, ben le Bar-le-Duc, c'était un aviso de type Amiens, soixante douze mètres de long, deux chaudières, deux turbines. PAr en-dessous, ça ressemblait à un bateau de commerce. Du coup, les sous-marins s'approchaient pour les torpiller, et quand ils se rendaient compte de leur erreur, c'était trop tard. Enfin, pour le Bar-Le-Duc, c'était trop tard aussi, il est sorti des chantiers navals de Lorient en 1918. Mais en 1920, il était avec la flotte de méditerranée orientale, à Sébastopol, pour escorter la flotte impériale. Ton grand-père, c'est bien de Sébastopol qu'il est parti, pas de Novorossisk, hein ? Ah, oui, j'aurais dû commencé par là, mais sur le Bar-le-Duc, c'est mon père qu'était matelot. Julien. Mais bon, tu l'as pas connu, bien-sûr. 
+
+Bon, ils ont accompagné toute la flotte jusqu'à Constantinople. La mer était déjà mauvaise, mais ils sont arrivés sans encombre. Ils ont attendu un moment là-bas, parce que personne ne savait où on allait envoyer tout ce beau monde. Tu te doutes bien qu'on voulait pas se mettre les soviétiques à dos non plus, alors pas question de les accueillir à Brest ou à Toulon. Et en décembre, c'était décidé, on les envoyait à Bizerte. Il y avait un lac, là-bas, derrière une rade, parfait pour les laisser en méditerranée, sans les laisser tomber, mais sans qu'ils soient tout à fait en France, tu vois ?
+Le Bar-le-Duc devait accompagner un des convois. Tu sais dans quel bateau ton grand-père a fait le trajet ? Regarde, il y avait un énorme croiseur, des torpilleurs, un dragueur de mine,  un aviso, russe, pour le coup, un de leurs navires-écoles... Tu peux regarder les noms sur l'article. Ça te dit rien ? Ah, et il y avait quatre sous-marins. J'ai retenu qu'il y en a un qui s'appelle le Outka, tu pourras regarder dans le papier. D'ailleurs le Bar-le-Duc transportait des piècesd e rechange pour les retaper une fois arrivés à bon port."
+
+Je parcourus l'article, mais aucun nom ne me parut familier. Mais je souris : il y avait bien une histoire de sous-marin, finalement ! Outka, ça veut dire canard, en russe. Un oiseau qui plonge chercher sa nourriture au fond de l'eau ! Jojo reprit. 
+
+"
+Malheureusement, la visibilité était mauvaise cette nuit-là, et la brume était épaisse t le temps n'a fait qu'empirer, au point de disperser le convoi. Un peu avant deux heures du matin, il y a eu un choc lent mais un bruit atroce : le Bar-le-Duc avait talonné."
+
+Je dus faire une grimace car il précisa : 
+
+" La coque avait heurté un récif par en-dessous. Ils ont alors battu en arrière et ils se sont dégagés. Mais le choc avait été tellement violent que les tubes qui sortaient de la chaudière ont joué, et qu'ils ont perdu la pression, la dynamo a stoppé. La deuxième chaudière n'était pas en pression, alors un bateau sans propulsion, on dit qu'il désempare, en gros, c'est un bouchon baladé par les vagues. 
+Ça n'a pas pris longtemps pour que les vagues l'envoient à la côte à nouveau. Le bateau était échoué, cette fois. 
+Ce que je peux te dire, c'est que les officiers, c'était pas des planqués. C'est le second qui s'est jeté à l'eau, avec une amarre à l'épaule. Il a nagé jusqu'à un premier rocher. C'était pas très loin, une dizaine de mètres, mais en pleine nuit, avec la tempête et l'amarre, il aurait pu y passer. Une fois qu'il a grimpé sur le premier rocher, les autres se servaient de Costons, tu vis ce que c'est les Costons ? C'est des feux dont on se servait pour faire des signaux, un peu comme les feux de détresse aujourd'hui, tu vois ? Bon, ils éclairaient avec ça. Mais le rocher, il était minuscule, alors il a fallu qu'il nage jusqu'à un autre, puis encore jusqu'à la côte. Les officiers s'occupaient du bateau et des feux, et les hommes passaient un à un sur l'amarre, jusqu'au premier rocher. Là, ils attendaient que les précédents aient gagné le suivant."
+
+ J'ai demandé à Jojo : "ils n'auraient pas pu attendre le matin sur le premier rocher ? Robert m'a souvent dit que les pêcheurs étaient rarement de bons nageurs."
+ Jojo fronça les sourcils. Robert était le mari d'une de ses demi-sœurs avec qui il ne s'entendait pas très cordialement. 
+
+ " Dans la marchande, peut-être, mais dans la royale, on sait nager. Et puis, il n'y avait pas la place. Au début, c'était bon, parce que le Bar-le-Duc les protégeait des vagues. Mais le bateau a fini par couler. À part le second qui avait nagé pour attacher l'amarre, tous les officiers y sont passés. Et surtout, le bateau n'empêchait plus les vagues de frapper le rocher. Les plus grosses vagues emportaient un type ou deux à chaque fois, alors au lieu d'attendre, les autres se sont lancés pour atteindre la côte. Ceux qui ont réussi se sont regroupé sur une langue rocheuse, parce que les premiers avaient aperçu une cabane quand les Costons éclairaient encore. Ils ont même retrouvé la mascotte du bateau, un braque qu'un matelot avait ramené de Constantinople, et qui était devenu la mascotte du bateau.  Mais ils ont quand même perdu vingt-six hommes, et on ne connaissait pas les noms des survivants, du coup, toutes les femmes de ces marins ont été veuves pendant trois jours, et vingt-six seulement tout le reste de leur vie. Joubin, le second, celui qui avait sauté à l'eau avec l'amarre, comme il était le seul officier restant, a décidé d'aller chercher un poste de télégraphe. Il a marché pied nus pendant vingt cinq kilomètres. Après, il a trouvé une mule, et ensuite, ils ont été secourus. Donc contrairement à ton grand-père, mon père n'est jamais arrivé à Bizerte !"
+
+
+
+
+---
+
+# 61_L_ordre_secret
+
+"Ça fait deux mois qu'on est sur l'eau. On voit cette eau du matin au soir, tantôt verte, tantôt bleue, tantôt propre, tantôt sale, l'air qu'on respire est chargé de sel, on vit sur du métal, les pieds sur le pont à attendre qu'on nous distribue des vivres, comme des animaux attendent leur fourrage. Maintenant qu'on est là, ils pourraient nous laisser descendre, bon sang."
+
+Vsévo et Mikhaïl sont accoudés au bastingage. 
+- Qui c'est, le type qui se plaint ?, demande Mikhaïl. 
+- Je sais pas, un civil, un professeur, un historien, je crois, répond Vsévo. 
+- Cela dit, il a raison, pourquoi est-ce qu'ils ne nous laissent pas descendre ? 
+- C'est vrai, quoi, on a déjà subi une quarantaine à Constantinople et leurs médecins nous ont déclarés exténués mais en bonne santé. 
+- Exténués, évidemment, après vingt jours de charbonnage en mer, dit Micha. 
+- Mais ce n'est pas ça qui me surprend le plus, qu'ils ne nous laissent pas descendre, je veux dire. 
+- Ah bon ? C'est quoi ? demande Micha.
+- Le calme, répond Vsévo. Regarde, ajoute-t-il en montrant le lac de Bizerte de la main. Rappelle-toi, à Constantinople, que ce soit à quai ou dans des embarcations de toutes tailles, il y avait toujours quelqu'un en train de nous vendre quelque chose. 
+- T'as raison, des Turcs, des Grecs, des marchands, des pêcheurs. Là, rien. 
+- Personne ! reprend Vsévo. Bon, tu me diras, pour les marchands ou les simples quidams, vu où ils nous ont parqués, ça fait une trotte. 
+En effet, dès leur arrivée à Bizerte, une fois passé le brise-lames qui marque l'entrée du port, les navires des convois qui se sont succédés du 21 décembre 1920 au 2 janvier 1921 ont été dirigés par le goulet jusqu'au lac de Bizerte, où on les a fait accoster sur la berge nord, à l'écart de la ville. 
+- Oui, on les voit mal venir nous voir à la nage, rigole Micha. 
+- Tu imagines, dit Vsévo en riant, un commis du coin voyant depuis deux jours le contre-torpilleur Bezpakoïnik se dire : "Tiens, je vais aller nager près de ses turbines, voire si je peux me faire découper en rondelles !"
+- Attends, poursuit Micha, hilare, imagine nager jusqu'à la coque du navire atelier Kronstadt, et espérer que 10 mètre plus haut les gars t'entendent les appeler !
+Ils rient encore, puis plus doucement et l'attente et la fatigue reprennent le dessus. 
+
+Ils ne savent pas que le virus contre lequel les autorités françaises veulent se prémunir n'est pas biologique. Avec une cruauté ironique involontaire envers ceux qui l'ont combattu au péril de leur vie, c'est le virus du bolchevisme qui fait trembler les autorités françaises. 
+
+Le 18 décembre 1920, quand la décision d 'accueillir la flotte à Bizerte est enfin confirmée, le vice-amiral  Darrieus a émit l'ordre  n°12 S portant la mention SECRET.
+
+"Les Russes évacués sur Bizerte ne devront avoir, jusqu’à nouvel ordre, aucune relation avec la terre. Les mesures suivantes seront prises pour empêcher les Russes de communiquer avec la terre,
+et empêcher que des embarcations de terre communiquent avec les bâtiments russes.
+
+On délimitera une zone interdite à la navigation à proximité des navires russes, sauf autorisation française ou homme à la mer et incendie. La surveillance sera assurée par deux chasseur, vedettes ou torpilleurs qui devront être commandés par un commandant armé au moins d'un revolver. La nuit, des explorations lentes par projecteur, espacées au minimum de 15 minutes et en variant les intervalles seront faites alternativement par la _France_ et par l’_Edgar Quinet_.
+
+Dans le secteur de la baie de Karouba, le régiment de tirailleurs sénégalais fournira un service de rondes et de patrouilles. Si une embarcation russe tente de sortir de la zone interdite, elle sera reconduite à bord de son bâtiment d'origine pour débarquer le personnel et rehissée. Cette  infraction aux consignes entraînera la suppression des embarcations du bâtiment coupable.
+
+Le ravitaillement sera fait par des remorqueurs ou chalands provenant de Sidi Abdallah ou de Bizerte, qui se rendront à bord de la _France_ pour embarquer le lieutenant de vaisseau fusilier chargé des relations avec les Russes et éventuellement le personnel nécessaire pour aider aux distributions et à la surveillance. Ce lieutenant de vaisseau recevra les demandes d’eau, de vivres et les autres demandes des Russes.
+
+Le courrier provenant des navires russes devra être désinfecté dans une salle chauffée et dans laquelle on fera agir des vapeurs de formol au moyen de fumigateurs à l'hôpital de Sidi Abdallah.
+
+ Les malades ou blessés russes ne seront envoyés à l’hôpital de la marine que munis d’un billet d’hôpital ou d’une liste d’évacuation comprenant les indications suivantes :
+
+ Nom, prénom, âge, date et lieu de naissance, numéro matricule, grade, religion, diagnostic, indication sommaire sur la marche de la maladie, date de la dernière vaccination contre la variole..."
+
+
+
+
+---
+
+# 62_Durs mais...
+
+Quand on les laisse enfin descendre à terre, une section de tirailleurs Sénégalais les encadre. Un jeune lieutenant français, un peu guindé, donne des instructions. Il a l'air gêné. Peut-être parce que les jeunes hommes portent des sacs manifestement trop lourds pour leur dos alors que son cheval n'a qu'une selle vide sur le sien. Peut-être qu'il a simplement honte qu'on traite ces tous jeunes hommes, dont la plupart avaient vaillamment combattu, comme des éléments potentiellement perturbateurs. 
+En chemin le commandant Berg leur explique qu'on ne se rend pas à Bizerte même mais au fort du Djebel Kebir. Les autorités françaises ont consenti à laisser l'amiral Guerassimoff à y installer l'École Navale. On prend le bac pour traverser le grand canal et on débarque du côté des pêcheries. Là, enfin, il y a de la vie, de la curiosité, des sourires. Certains pêcheurs mime le port d'un lourd sac à dos en grimaçant, entre moquerie et compassion sincère d'hommes habituées aux charges qui cassent l'échine. 
+Le lieutenant français explique au commandant Berg : le djebel Kébir, c'est à dire le massif montagneux du Kébir, a la même hauteur que la Tour Eiffel. Berg répond que trois cents mètres de dénivellés ne sont pas pour effrayer ses Junkers. 
+- Facile à dire, il n'a pas son barda sur le dos, souffle Mikhaïl.
+- T'as vu, il nous a appelés Junkers, répond Vsévolode. 
+
+Alors Alors, seulement, les deux jeunes hommes prennent conscience de ce que la guerre civile leur a volé. Il ont l'âge des aspirants avec lesquels ils ont défendu le Palais d'Hiver, mais il sn'ont pas passé deux ans à parfaire leur éducation, à progresser en mathématique, en physique, à connaître leur premier amour, il les ont passés à se battre, à tuer et tâcher de ne pas se faire tuer. 
+- S'ils nous avaient accueillis en France, vraiment en France, on la verrait, la Tour Eiffel, au lieu d'en parler.  
+- Tu devrais être content qu'on n'y soit pas, répond Vsévolode. 
+- Quoi, tu préfère crapahuter dans le Djébel ? demande Micha. 
+- Je me dis que si on est là, c'est qu'ils croient encore un renversement possible, un soulèvement chez nous, en Russie, et qu'ils envisagent encore de laisser la flotte repartir et reconquérir ce que les soviétiques nous ont pris...
+
+Quand ils arrivent devant l'imposante entrée du fort, ils n'ont plus assez de souffle pour discuter de la Tour Eiffel. Le mur d'enceinte extérieur est suivi d'un fossé et d'un autre mur d'enceinte, selon un plan d'escarpe et de contre escarpe, et cette architecture militaire tout à fait classique, la même que celle du Fort du Questel à Brest ou que des batteries Vauban de Noisy-le-Roi, contraste avec le paysage rocailleux du Djébel. 
+
+Les élèves habiteront sur place, les enseignants et leurs famille logeront dans le village de Sfaïat, à quelques kilomètres. 
+- Ça ne te fait pas penser au sanatorium ? demande Mikhaïl. 
+- À quoi ?, dit Vsévolode. 
+- Les murs blanchis à la chaux, nus, les lits alignés... Non ?
+- Mais quel sanatorium ? 
+- Celui où on t'a soigné quand tu as attrapé le typhus, tiens, quel autre ? 
+- Comment veux-tu que je le sache ? J'étais occupé à ne pas mourir. Avec une fièvre pareille, tu ne vois rien de ce qu'il y a vraiment autour de toi. Et rien de ce que tu crois voir ne se trouve vraiment autour de toi. 
+Mikhaïl ne répond pas tout de suite. Évoquer ces jours où la mort se tenait tout près, tout le temps, ça ne colle pas avec le soleil, ça ne colle pas avec la colline aride, avec le ciel bleu foncé. 
+- Le sol est Africain, finit-i par dire, les murs sont bien français, il va falloir donner à tout ça un air russe, finit-il par dire. 
+
+Et c'est en effet au fort qu'on transfère la chapelle de fortune qu'on avait installée sur le vieux cuirassé "Gueorgui Pobiedonossietz" (Saint Georges porteur de victoire). On démonte l'iconostase, ce mur qui sépare le clergé des fidèles surant une partie de la liturgie orthodoxe, et on le transporte du lac de Bizerte jusqu'au Fort. 
+Les élèves de la nouvelle école navale compte leurs allers-retours jusqu'à la ville ou au lac de Bizerte en Tours Eiffel, en référence à la remarque du lieutenant français. 
+- On va encore se taper six Tours Eiffel demain, deux allers-retours pour remonter du matériel et un autre pour les exercices sur le plan d'eau. 
+- J'ai l'impression que c'est juste pour le plaisir nous faire suer. 
+- Guerassimoff, je te le dis,c 'est une peau de vache. 
+De fait, la discipline est une obsession de l'amiral, un homme vif et sec, mais dont les yeux malicieux laissent deviner un attachement presque tendre à ses troupes. 
+Les garçons et les jeunes hommes qu'on lui confie sortent de deux années de guerre civile. Certains sont allés au front, d'autres non, les pères de certains ont été massacrés et certains on participé à des massacres. Tous ont connu des privations ainsi que l'effondrement de leur monde mental et on leur demande à présent de reprendre une scolarité exigeante. La discipline qui ne faisait pas question quand il s'agissait de ne pas mourir, il leur semble difficile de l'accepter quand il ne s'agit que d'étudier les mathématiques, la géographie, l'histoire des batailles navales. Mais pour les calculs de correction de positionnement quand on navigue à la boussole et au compas, c'est différent, car celui qui leur enseigne ces méthodes les impressionne par la rigueur absolue de sa méthode, sa capacité à réaliser des opérations trigonométriques complexes de tête, et par son savoir encyclopédique. 
+- Demain, on a cours avec Ogloblionsky. 
+- Ahhh, le Dieu de la Déviation... va falloir s'accrocher.
+Des décennies plus tard, tous ne se rappelleront d'Ogloblionski qu'en l'appelant le Dieu de la Déviation. 
+
+Mais certains ne sont plus capables de s'accrocher. Aujourd'hui encore, malgré les habituelles rengaines racistes, ce que les sociologues montrent, c'est qu'après les corrections liées au milieu social, aux conditions de vie, à l'éducation, les sociologues montrent que ni l'appartenance ethnique, ni l'appartenance religieuse ne sont des facteurs explicatifs de la délinquance, le seul facteur qui ajoute quelque chose, c'est le fait de venir d'un pays en guerre, en particulier en guerre civile. 
+Alors les punitions pleuvent, forgeant la légende noire de Guerassimoff, les exclusions aussi, parois. Parmi les plus âgés, certains ne peuvent plus rester assis à un pupitre huit heures par jour et ils acceptent les boulots que les autorités françaises locales leur proposent, des boulots d'ouvriers agricoles, de mineurs. Ils sont plutôt l'exception, car malgré son apparente froideur, l'amiral Guerassimoff se fait respecter des élèves par la justesse de sa justice, et il se fait apprécier des enseignants qui découvrent son humour décalé. 
+Dur mais pas cassant, aurait Valeri Iakovlevitvh Gousseff.
+
+
+---
+
+# 63_Chaque_jour_la_même_chose
+
+Une-deux, Une deux : chaque jour la même chose. Rassemblement et salut au drapeau. Enchaîner les mêmes mouvements, cette gymnastique matinale que Vsevo continuera à faire chaque jour, toute sa vie. Je le sais parce que mon oncle me l'a dit. La discipline comme une enceinte invisible qui double celle du fort du Djebel Kebir. 
+Leçons de mathématique, de physique, application à la navigation, à la ballistique. 
+Le rythme des avirons qui frappent l'eau du lac de Bizerte, mouvements répétés jusqu'à la brûlure, qui renforcent ces corps que la guerre et la faim avaient réduits à de l'os, du nerf et de la peau. 
+Faire corps. Tous ces garçons qui chantent à l'unisson qui sautent, qui rament qui marchent comme un seul organisme. 
+On marche du fort au canal, du lac jusqu'au sommet du Djebel, des tours Eiffel de dénivelée. Une-deux, une-deux, mais ce n'est plus la guerre, c'est plus ordonné que la guerre. On se lave tous les jours, on se rase, tous les jours et on dort toutes les nuits dans le même lit. Quand on se réveille, qu'on se lève, qu'on salue le drapeau, on voit, à côté, ses camarades de promotion, toujours les mêmes parce que ce n'est plus la guerre, plus l'exode, mais l'exil, et que  personne n'est mort hier, ni sous les balles de l'ennemi, ni mort de faim, ni du typhus. 
+Personne à Bizerte, en tous cas. 
+En quelques mois, les circuits postaux sont réorganisés,  et le courrier, comme une rivière bloquée par un barrage finit par déborder, se faire un nouveau lit et après des méandres inédits retrouve la mer à laquelle elle était destinée, le courrier apporte son lot de bouteilles qui contiennent des appels au secours, ou, au contraire, des "tout va bien ne t'en fais pas."
+Avant la distribution du courrier, il règne ce matin une agitation inhabituelle dans le réfectoire du Djebel Kebir. Sans tambour ni trompettes, le lieutenant Berg a annoncé que dès la semaine prochaine les élèves des grandes classes, ceux qui se préparent à devenir aspirants, "Garde-marine" comme on dit en français dans le texte, auront des cours de danse. 
+Un officier de la Marine Russe doit savoir tenir son rang dans le monde, quelle que soit sa situation. Et c'est pourquoi un bal sera organisé le !6 novembre, pour la fête des marins. 
+Tout de suite, l’excitation est palpable, car ce que cela veut dire c'est qu'il y aura des filles. 
+L'agitation est elle que le lieutenant Berg se fâche : " Silence ! Silence, enfin quoi, vous avez des mères et des sœurs ! Tout ce que vous avez gagné avec vos ricanements puérils, c'est qu'il n'y aura pas de distribution de courrier avant que vous n'ayez montré que vous savez vous tenir."
+
+En fait de jeunes filles, ce sont les femmes des officiers qui font office de cavalières dans ces cours où certains découvrent que le pas cadencé des parades est plus aisé que le glissement tournoyant de la valse.  Un-deux-trois, un-deux-trois. Les cours se déroulent dans une salle de la préfecture maritime que le vice-amiral Varney met à disposition de l'académie. Il a été question d'utiliser la salle de réception d'un des hôtels où descendent les métropolitains en affaires, mais on a préféré emmener ces jeunes hommes à l'état major : il s'agit d'un devoir d'officier, pas d'un divertissement, pas d'un bal populaire où ces fiers soldats viendraient chercher fille à marier. Précaution ridicule, puisque l'état major est en face de l'hôtel de France, et l'hôtel de Bizerte, dont il n'est séparé que par l'avenue d'Algérie. L'imagination débordante des notables tremblant pour la virginité de leurs filles contraste avec son absence quand il s'agit des noms de lieu. Hôtel de Paris, hôtel d'Europe, avenue d'Algérie, rue de la gare, qui aurait aussi pu s'appeler rue du port puisqu'elle jouxte le principal quai d'embarquement. On pourrait se croire dans une ville de Charente ou sur les bords du Rhône, mais les dames qui se promènent avec une ombrelle sont parfois assistées d'une bonne qui ne parle pas français.
+Sur les docks, en revanche, on mesure que tous les colons ne sont pas de riches négociants, de fortunés propriétaires. Des hommes fatigués attendent le déchargement d'un paquebot pour rapporter des équipements qu'on attend pour une exploitation, plus au sud, une charrue, un pressoir, des pioches, un cheval, même.
+
+Comme à chaque fois que j'ai abandonné l'écriture de ce livre,  que j'ai fermé la porte pour ne pas voir ce travail impossible à accomplir, il est venu frapper à la fenêtre, doucement, mais avec insistance. Cette fois-ci, il a manqué de délicatesse. Le père des filles de la femme dont je partage la vie aujourd'hui est parti naviguer sur un immense voilier ancien dont l'équipage, pour parfaire l'ironie de la situation, est composé de Russes et d'Ukrainiens, qui naviguent ensemble sous un pavillon étranger. Après avoir traversé la méditerranée, le père des filles de la femme dont je partage la vie aujourd'hui lui a envoyé des photos de leur escale principale : Bizerte. 
+Le canal est plus étroit que ce que je m'étais imaginé, et sur les berges, les façades contiguës, proches de l'eau, me rappellent toutes ces villes où l'on se dit que c'est la terre qui est incongrue, pas l'eau, une terre prisonnière des canaux qui l'empêcheraient de dériver vers le large, Bruges, Venise, Saint-Petersbourg, mais sans les chichis de ces dernières, avec, plutôt, la simplicité ensoleillée de Saint-Louis, à l'embouchure du fleuve Sénégal. 
+Ça et là des façades sont peintes en bleu ciel, en vert d'eau, en ocre rosé, et je me demande si c'était déjà le cas, en 1921, sur les photos et les cartes postales en noir et blanc qui peuplent les archives familiales. 
+Les yeux de Vsevo semblent d'un gris délavé, mais je sais qu'ils étaient bleu acier, comme ceux de mon père, comme ceux d'oncle Lala, ce bleu récessif que les gènes corses de ma mère ont recouvert chez moi d'une écorce sombre. 
+Je me demande aussi, si, en 1921, Bizerte était déjà peuplée de chats. On en voit partout sur les photos du père des filles de la femme dont je partage la vie aujourd'hui, sur le port, autour d'un pêcheur à lka canne, attendant sans doute qu'il leur offre les entrailles des poissons qu'il lui faudra vider, allongés sur le pied en ciment du parasol d'une terrasse de café, bénéficiant de l'ombre et des caresses de quelques touriste qui boivent un café, ou même sur l'étagère inférieure d'un étal en inox, au marché, déjà repus des morceaux d'abats que leur dispensent les bouchers. Chacun a à cœur de les nourrir, de leur passer une main distraite sur le  dos, comme une reconnaissance, comme si, alors qu'ils n'appartiennent à personne, la ville leur appartenait tout entière. 
+Ils se promènent et leur pas chaloupé a tout de la danse lascive et rien de la démarche militaire. 
+
+Mais la lascivité n' pas de place dans les cours que dispense la femme de l'amiral Guerassimoff aux Cadets. Quand l'amiral a installé l'académie au Djebel Kebir, il avait l'intention d'y habiter lui-même. Mais on lui a fait remarquer : " Il n'est pas vraiment souhaitable qu'une femme vive parmi tous ces garçons ! "
+Guerassimoff avait répondu : "Une femme ? Ma femme ? Mais ce n'est pas une femme, c'est un ange..." avant de sinstaller avec toutes les familles du corps enseignant dans le village de Sfaiat, à quelques kilomètres en contrebas. 
+Pour les élèves officiers, elle tiendrait plutôt du démon. 
+"De l'élégance, messieurs, de la distance. DE LA DIS-TANCE !"
+Et elle remonte à l'aide d'une baguette une main masculine descendue un peu trop bas sur la taille d'une des femmes d'officiers, ou, plus exceptionnellement fille d'officier, qui se dévouent pour dégourdir ces danseurs en devenir, baguette qu'elle intercale entre deux danseurs quand un bras s'est un peu trop plié et qu'une cavalière s'en trouve un peu trop rapprochée d'un jeune junker audacieux. 
+Parfois le lieutenant Berg, qui assiste aux leçon, explose :
+" Enfin, ce n'est pas un bal populaire. Vous vous croyez dans un club de jazz . La danse, messieurs, elle ne sert pas à faire connaître votre désir, et à vous trimballer comme un couple de gorilles endiablés, laissons cela aux bolcheviks et aux américains, la danse, au contraire, sert à prouver que vous dominez vos désirs. Bien-sûr vos partenaires sont plus belles les unes que les autres, et j'en profite pour vous remercier, mesdames, de nous aider à dégrossir ces animaux, mais votre rôle, c'est justement de leur montrer votre sang-froid, votre noblesse de cœur. Si vous dansez bien, messieurs, elles auront peut-être le droit de s'étourdir un peu sur une valse de Tchaïkovski, justement parce qu'elles sauront que vous gardez la tête froide. "
+
+Les têtes des jeunes garçons se redressent,; les regards cherchent au loin une "ligne bleue des Vosges" pour éviter de regarder de trop près le coup, l'épaule, la fossette de ces femmes plus âgées qu'eux, mais si bien habillées. 
+
+Sur le chemin du retour, évidemment, les plaisanteries faites à mi-voix, les taquineries virent parfois à la grivoiserie. Certains se vantent de connaître des endroits à Bizerte...
+Misha rappelle à Vsévo cette discussion qu'ils ont eue avant la guerre. 
+- Tu te rappelles quand Kourakine voulait nous emmener au bordel ? 
+- Pas lui, son frère, répond Vsevo. 
+- Et nous, qui attendions de participer à la grande guerre, histoire de devenir des hommes avant de...
+- ... devenir des hommes. Devenir des hommes avant de devenir des hommes, dit Vsévo en riant. 
+- Ehg ben voilà, on n'a vu que la guerre civile, dit Misha, et on rougit comme des puceaux quand on valse avec des rombières.
+
+À l'arrivée au fort, on leur distribue enfin le courrier. Non que le lieutenant Berg soit particulièrement fier d'eux, mais ils ont globalement réussi à se tenir, et le courrier est là. 
+
+Il y a une enveloppe pour Vsevo. Pakoff lui donne des nouvelles des gens qu'il a réussi à localiser, voire à contacter. Sa sœur Nadia est bien vivante. Certains camarades du régiment Markoff sont à Galipolli avec le reste du corps des Volontaires. Kourakine faisait partie de ceux-là. LE premier septembre dernier, on lui a appris que sa mère avait réssi à se rendre en Angleterre et qu'elle faisait tout son possible pour qu'il puisse la rejoindre. 
+Après avoir appris cela, Kourakine s'était procuré de quoi boire, et au petit matin il s'était tiré une balle dans le cœur. 
+
+Ni Vsevo ni Misha ne l'évoquent, mais ils repensent tous les deux à cette discussion sur les puceaux et les bordels. En réalité, elle ne s'est pas terminée juste avant leur engagement derrière les volontaires, elle s'est terminée juste après le pogrom de Fastov, juste avant la défaite de Peregonovka, quand Kourakine répétait en pleurant, ivre d'alcool et de chagrin : "dites-moi que je les ai pas touchées, hein ? "
+
+
+
+
+---
+
+# 64_yeux_deux_points_gris
+
+Il y a un document intitulé "Passeport," mais dont la couverture est faite d'un carton uni verdâtre. République Française. Passeport. Carnet contenant 16 pages. 
+
+Sur la page trois, une écriture à l'ancienne mais très lisible a renseigné les blancs. *Consulat* de France à *Bizerte*
+N° du Régistre [sic] 1780. 
+
+Le présent PASSEPORT valable pour UN AN 
+à partir du *neuf novembre dix neuf cent vingt deux*
+a été délivré à M *Gousseff Vsevolod (Russe)*
+
+Page quatre : 
+Profession : *marin*
+ né à *Moguileff*
+ Domicilé à *Bizerte (Tunisie)*
+ Immatriculé ou inscrit sous le n°..... à..... le..... 192..... qui, en compagnie de ..... se rend à *Paris*
+
+Jamais le terme passeport n'a été aussi près de son étymologie : passer d'un port à l'autre. Le document ne con,tient même pas de date de naissance. 
+
+Page cinq. 
+Fait à *Bizerte* le *neuf novembre vingt deux*. 
+Il y a ensuite un tampon du consulat et une signature d'une encre d'une autre couleur. Il me semble que c'est Vsevo lui même qui a rempli tout le reste, et que l'employé du consulat a simplement fait viser le document.
+Sous la mention "signature du porteur", quelqu'un a fait une croix, comme s'il était en face de la personne pour lui dire : signe ici, mon gars. En Guise de signature, Vsevo a écrit V. Gousseff et la barre du dernier f s'avance un peu vers la droite, pour "faire signature."
+
+La page six contient le signalement. 
+Age : *20 ans*
+Taille : (difficile à lire mais il me semble que c'est) *1m65*
+Cheveux : *blonds*
+Front: *moyen*
+Yeux: *gris*
+Nez: *droit*
+Bouche : *moyenne*
+Barbe : *rasée*
+Menton : *rond*
+Visage : *ovale*
+Teint : *claire* [sic]
+Signes particuliers : ......
+
+Alors quoi, est-ce que Vsévo avait les yeux vraiment gris ? Est-ce que le bleu clair et perçant du regard de mon père aurait été qualifié, lui aussi, de gris par un employé du consulat ? Est-ce que même cette toute petite chose que je pensais savoir, cette couleur que je pensais pouvoir imaginer sans crainte de me tromper, est elle aussi inaccessible ? 
+
+Page sept. Feuille réservée pour l'apposition facultative de la photographie du porter. 
+
+Vsevo me regarde. Un peu plus d'un siècle nous sépare. L'employé a apposé le tampon circulaire du consulat à chacun des quatre coins de la photo, comme si c'était l'encre qui la faisait tenir à la feuille, mais sûrement pour empêcher que quelqu'un change la photographie et se resserve du passeport. 
+
+À vingt ans, j'étais un petit con, un nerveux spasmophile envenimé par la négativité. À vingt ans, Vsevo regarde l'objectif avec l'air de celui qui en a trop vu pour être impressionné par cette nouvelle étape, cette nouvelle traversée, ce pas de plus vers l'exil. 
+
+Peut-être, simplement, que le photographe lui a demandé de ne pas sourire, de ne pas froncer les sourcils, de se maintenir bien immobile en restant légèrement de trois-quart pour qu'on distingue la forme de son oreille, la ligne de sa mâchoire, et que je plaque sur ce visage impassible les émotions que j'essaie de deviner depuis si longtemps. 
+
